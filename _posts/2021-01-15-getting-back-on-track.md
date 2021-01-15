@@ -8,11 +8,9 @@ comments: false
 tags:
   - ""
 ---
-![*On the bright side, I finally got to see "The Greatest Showman" on the flight back! The movie's main theme was our theme song back in HLAB Summer School 2020, so now I can understand the hype behind it.](../uploads/012920_the_greatest_showman.jpg "The Greatest Showman on my airplane flight back")
-
-# Two weeks of (voluntary) self-quarantine
-
 Since I returned to the US before Trump's travel ban took effect, and since I was a US citizen, I was never under the threat of being stuck in China or doing a mandatory two-week self-quarantine. Furthermore, I was coming from Beijing, a city with very few cases, so it was even less likely I had contracted COVID-19. Still, I didn't want to risk endangering anyone else in case I did turn out to have the virus, so to be **extra** safe, I made the voluntary decision to stay at home. 
+
+![Side note: Even though I was sad to have to come home early, on the bright side, I finally got to see "The Greatest Showman" on the flight back! The movie's main theme was our theme song back in HLAB Summer School 2020, so now I can understand the hype behind it.](../uploads/012920_the_greatest_showman.jpg "The Greatest Showman on my airplane flight back")
 
 ## Passing the time
 
