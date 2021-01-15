@@ -2,7 +2,7 @@
 layout: post
 title: Chipping away at the language barrier
 date: 2020-03-15T21:47:42.427Z
-header_feature_image: ../uploads/031220_taiwan_ntue_teacher_jeff_restaurant.jpg
+header_feature_image: ../uploads/031220_taiwan_ntue_teacher_jeff_restaurant_cropped.jpg
 title_color: "#ffffff"
 comments: false
 tags:
