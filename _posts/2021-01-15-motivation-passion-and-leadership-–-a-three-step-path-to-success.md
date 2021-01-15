@@ -62,7 +62,7 @@ This is the dilemma I struggled with (and still struggle) with when adjusting to
 
 This philosophical early-life-crisis was happening simultaneously with the concerns in my Part I post flying through my head. *What in the world am I going to do during my school breaks?* Luckily, a golden answer came to me on a silver platter (wordplay intended). HUT, a liberal arts pilot program offered by HLAB giving past CMs an opportunity to teach Japanese high schoolers about topics important to them. I couldn't have asked for a better opportunity.
 
-After applying and being accepted, I had to confront the next order of business: *what would I be teaching?* Fortunately, I didn't have to provide an answer, as the directors had decided that I would use the seminar I had taught last summer. As you can see from my earlier philosophical musings, you now know the importance of my seminar to me.
+After applying and being accepted, I had to confront the next order of business: *what would I be teaching?* Fortunately, I didn't have to provide an answer, as the directors had decided that I would use the seminar I had taught last summer. As you can see from my earlier philosophical musings, you now know the importance of my seminar to me. 
 
 ![](../uploads/person_top_hill.jpeg "Person standing on top of hill")
 
