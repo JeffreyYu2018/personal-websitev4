@@ -2,7 +2,7 @@
 layout: post
 title: Balancing friendships and alone time
 date: 2020-03-15T21:56:16.131Z
-header_feature_image: ../uploads/030620_taiwan_yalies_post_macho_tacos.jpg
+header_feature_image: ../uploads/030620_taiwan_yalies_post_macho_tacos_cropped.jpg
 title_color: "#ffffff"
 comments: false
 tags:
