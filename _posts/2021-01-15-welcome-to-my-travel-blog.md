@@ -14,9 +14,7 @@ My name is Jeffrey, and at the time of this post, I'm currently a sophomore at Y
 
 ### Japan, China, Taiwan ... oh my!
 
-![Asakusa Temple at night, in Tokyo, a few hours before the New Year.](../uploads/123119_asakusa_temple_night.jpg "Asakusa Temple at night, in Tokyo, a few hours before the New Year. The line doesn't look too bad here, but boy, it got crazy.")
-
-> #### Asakusa Temple at night, in Tokyo, a few hours before the New Year. The line doesn't look too bad here, but boy, it got **crazy.**
+![Asakusa Temple at night, in Tokyo, a few hours before the New Year. The line doesn't look too bad here, but boy, it got crazy.](../uploads/123119_asakusa_temple_night.jpg "Asakusa Temple at night, in Tokyo, a few hours before the New Year.")
 
 I've been lucky to travel to multiple countries already, most recently Japan and China. I was **also** really lucky this fall to have been selected as a Light Fellow for the 2020 spring semester, so my first set of travel blogs will chronicle my trip to Eastern Asia to study Mandarin. My initial plans were to complete my studies at Associated Colleges in China located in Beijing. However, the outbreak of the coronavirus (COVID-19) during my time away from Yale has caused a **huge** change in plans, so now I'll (hopefully) be studying at the International Chinese Language Program in Taipei. In case you're wondering what happened abroad, it's a long story, which I'll get to in the next few blog posts.
 
@@ -24,7 +22,7 @@ Speaking of blog posts, I realize I'm now 19 years behind on my travels ... haha
 
 Whew. Now that I've gotten all the technicalities out of the way ... let's get blogging!
 
-![A stunning view of Tokyo from the Sunshine City Observatory in Ikebukuro.](../uploads/010320_sunshine_observatory_tokyo_view.jpg "A stunning view of Tokyo from the Sunshine City Observatory in Ikebukuro.")
+![View of Tokyo from the Sunshine City Observatory in Ikebukuro.](../uploads/010320_sunshine_observatory_tokyo_view.jpg "A stunning view of Tokyo from the Sunshine City Observatory in Ikebukuro.")
 
 *Note:* I created this website by myself as a side project using some cool software*, so there might be a few bugs here and there on the site. However, I'll eventually be transitioning my blogs to a new website that I'm also creating. Until then, I'll temporarily post everything on this site.
 
