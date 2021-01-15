@@ -22,7 +22,7 @@ Since most stores were closed on New Years Day, I didn't really have an opportun
 
 ![I was tempted to get one for the Davenport Pops Orchestra's next concert, but I decided against it. Sorry Twoset.](../uploads/010120_rubber_chickens.jpg "Rubber chickens at Don Quixote")
 
-![This type of shio ramen, Jukusei Ramen, was so oishi (delicious) that I took a picture of the menu item on my phone so I would be able to order the exact same thing next time I came to Japan.](/images/shio_ramen.jpg "Special New -Jukusei Ramen")
+![This type of shio ramen, Jukusei Ramen, was so oishi (delicious) that I took a picture of the menu item on my phone so I would be able to order the exact same thing next time I came to Japan.](../uploads/010120_shio_ramen.jpg "Special New -Jukusei Ramen")
 
 Overall, it was a restful and relaxing day, of which I have no regrets.
 
@@ -78,7 +78,7 @@ During the tour I innocuously happened to talk to a lovely family of three who w
 
 I had to leave the ramen tour early since I had signed up for another free walking tour of Shinjuku's Red Light district  at 8:30 pm, so I bid the group farewell and trekked off again by myself to the rendezvous point. To my surprise, I found the guide this time, and we went on a really insightful tour of one of Shinjuku's most infamous neighborhoods: the Red Light district.
 
-![An alley in Shinjuku known as the "Pissing Alley." First poop, now piss ... I think I'm starting to sense a theme here.](../uploads/010320_pissing_alley.jpg "An alley in Shinjuku known as the \"Pissing Alley\"")
+![An alley in Shinjuku known as the "Pissing Alley." First poop, now piss ... I think I'm starting to sense a theme here.](../uploads/010320_pissing_alley.jpg "An alley in Shinjuku known as the \\"Pissing Alley\\"")
 
 ![The main street of the Red Light district. Even though it's a hub of illegal activity in Japan, it felt surprisingly safe, evidenced by the number of tourists walking throughout the area.](../uploads/010320_red_light_district.jpg "The main street of the red light district")
 
