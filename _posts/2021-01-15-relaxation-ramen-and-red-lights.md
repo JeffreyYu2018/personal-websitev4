@@ -32,8 +32,6 @@ Overall, it was a restful and relaxing day, of which I have no regrets.
 
 The next thing to do on my agenda was to check out Odaiba, the hipster, entertainment-filled island in Tokyo Bay. I had drafted a list of things to do in the neighborhood beforehand, but the day of, I decided just to walk around and explore what looked neat. Little did I know that Odaiba would turn out to be the coolest place I would visit during my entire trip.
 
-![Unko (poop) museum in DiverCity Mall. Props to Japan for doing what I didn't think was possible: making poop kawaii.*  ![Life-sized Gundam statue in DiverCity Tokyo Plaza](/images/gundam_statue.jpg](../uploads/010220_unko_museum.jpg "Unko (poop) museum in DiverCity Mall, Tokyo")
-
 ![Life-sized Gundam statue in DiverCity Tokyo Plaza. I never got into the franchise as a kid but I had heard of it before. The statue, for fans and non-fans alike, though, was pretty rad.](../uploads/010220_gundam_statue.jpg "Life-sized Gundam statue in DiverCity Tokyo Plaza")
 
 ![More delicious tonkatsu ramen from the food plaza inside the mall. I'm officially a sucker for pork belly.](../uploads/010220_divercity_tokyo_ramen.jpg "Delicious tonkatsu ramen from the food plaza in the DiverCity Tokyo mall")
