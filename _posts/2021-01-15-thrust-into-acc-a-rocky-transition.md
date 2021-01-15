@@ -8,9 +8,9 @@ comments: false
 tags:
   - ChinaWi20
 ---
-![Unlimited farewell meal food? Me, an American? Mhmmmmmm...](../uploads/011320_hut_farewell_dinner.jpg "HUT Farewell dinner")
-
 After a warm HUT farewell meal in a Brazilian steakhouse, it was time for me to lift my roots from Tokyo and plant them at my next stop: Beijing. 
+
+![Unlimited farewell meal food? Me, an American? Mhmmmmmm...](../uploads/011320_hut_farewell_dinner.jpg "HUT Farewell dinner")
 
 Immediately following the lunch, I departed for Haneda airport and took my 5:15 pm flight to Beijing. Thank goodness I had planned ahead, because my flight only took 3 or so hours. Intra-Asia travel is so much easier than Inter-Asia travel! After arriving in the airport, I was picked up by my Dad's brother and wife, also known as *bo bo* and *er da ma.* One of the nicest things to experience as a travel is being picked up as a local. I don't know why, but just having someone who knows the lay of the land once you get there is just a huge relief. I didn't have to worry about the subway, about delays, about navigating Beijing's subway. It was also a huge relief because after getting there, I couldn't have done any of those things, since AT&T had forgotten to activate my international coverage! 
 
