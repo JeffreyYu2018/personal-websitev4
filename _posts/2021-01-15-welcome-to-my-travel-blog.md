@@ -20,7 +20,7 @@ Speaking of blog posts, I realize I'm now 19 years behind on my travels ... haha
 
 Whew. Now that I've gotten all the technicalities out of the way ... let's get blogging!
 
-![View of Tokyo from the Sunshine City Observatory in Ikebukuro.](../uploads/010320_sunshine_observatory_tokyo_view.jpg "A stunning view of Tokyo from the Sunshine City Observatory in Ikebukuro.")
+![A stunning view of Tokyo from the Sunshine City Observatory in Ikebukuro.](../uploads/010320_sunshine_observatory_tokyo_view.jpg "View of Tokyo from the Sunshine City Observatory in Ikebukuro.")
 
 *Note:* I created this website by myself as a side project using some cool software*, so there might be a few bugs here and there on the site. However, I'll eventually be transitioning my blogs to a new website that I'm also creating. Until then, I'll temporarily post everything on this site.
 
