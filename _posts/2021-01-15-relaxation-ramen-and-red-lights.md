@@ -8,8 +8,6 @@ comments: false
 tags:
   - Japan20
 ---
-## Some much needed rest and relaxation
-
 After a full day exploring Asakusa until 3:00 am, the only thing on my mind was getting into my bed and sleeping in. I guess that's one of the perks of not planning ahead – you're totally free to take a day off to rest!
 
 I think something that gets overlooked while traveling is taking time to just stop and recover. When you look at social media you only see the highlights of people's trips – the beautiful views, the stunning historical sites. What you don't see are the miles of walking and travel to get those pictures. In the first three days I had been in Tokyo, I had walked over 11 miles – **each day.** My feet weren't even sore at that point – putting a little pressure on any part of my heel felt like someone was scraping it with a slab of concrete. Needless to say, the largest thing I wanted at that moment was just some time to myself, in my room, to give my battered feet a much deserved break.
@@ -76,7 +74,7 @@ During the tour I innocuously happened to talk to a lovely family of three who w
 
 I had to leave the ramen tour early since I had signed up for another free walking tour of Shinjuku's Red Light district  at 8:30 pm, so I bid the group farewell and trekked off again by myself to the rendezvous point. To my surprise, I found the guide this time, and we went on a really insightful tour of one of Shinjuku's most infamous neighborhoods: the Red Light district.
 
-![An alley in Shinjuku known as the "Pissing Alley." First poop, now piss ... I think I'm starting to sense a theme here.](../uploads/010320_pissing_alley.jpg "An alley in Shinjuku known as the \\"Pissing Alley\\"")
+![An alley in Shinjuku known as the "Pissing Alley." First poop, now piss ... I think I'm starting to sense a theme here.](../uploads/010320_pissing_alley.jpg "An alley in Shinjuku known as the \\\"Pissing Alley\\\"")
 
 ![The main street of the Red Light district. Even though it's a hub of illegal activity in Japan, it felt surprisingly safe, evidenced by the number of tourists walking throughout the area.](../uploads/010320_red_light_district.jpg "The main street of the red light district")
 
