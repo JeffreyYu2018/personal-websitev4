@@ -6,7 +6,7 @@ header_feature_image: ../uploads/123119_asakusa_temple_night.jpg
 title_color: "#ffffff"
 comments: false
 tags:
-  - Japan20
+  - JapanWi20
 ---
 I was walking next to the Drunken Moon Lake at National Taiwan University, when I thought, *wow, what a scenic location to blog at.* I mean, just look at this:
 
