@@ -54,7 +54,7 @@ By this point I kind of just started wandering all over the place: to the Gonggu
 
 ![An insane line for masks at a pharmacy near my apartment. The Taiwanese government set up a program allowing citizens to purchase 3 masks a week, based on their National Health Insurance card, so everyone in that line knew that they weren't waiting in vain.](../uploads/020220_taiwan_pharmacy_masks_line.jpg "Line for masks at a pharmacy near my apartment")
 
-![A walk by Daan Park.](/images/daan_park.jpg "Daan Park lake")
+![A walk by Daan Park.](../uploads/030220_daan_park.jpg "Daan Park lake")
 
 ![I'm in bread heaven.](../uploads/030220_taiwan_first_bakery.jpg "Taiwan bakery")
 
