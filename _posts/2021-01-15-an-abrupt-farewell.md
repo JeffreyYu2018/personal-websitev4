@@ -2,7 +2,7 @@
 layout: post
 title: An abrupt farewell
 date: 2020-03-14T21:04:21.802Z
-header_feature_image: ../uploads/012920_yingying_family.jpg
+header_feature_image: ../uploads/012920_yingying_family_cropped.jpg
 title_color: "#ffffff"
 comments: false
 tags:
