@@ -30,7 +30,7 @@ But, gradually, these requirements that veiled the need to answer the quintessen
 
 I can't help but think the limits are endless. Tomorrow, I could go to American Samoa, pick up a pack of handyman's tools and live on an island for the rest of my life. Or, I could head to a cafe somewhere within a seven miles radius to eat an egg and salad bagel. With all of these micro-decisions also come macro-decisions as well. What impact do you want to make on the world? Do you want to become a doctor and save lives? Or do you want to become an engineer who creates the next big thing? Or do you want to become a social entrepreneur, a journalist, an academic? **What do you want to do?**
 
-![If only it were as simple as choosing between two paths.](../uploads/two_paths.jpg "Two paths")
+![If only it were as simple as choosing between two paths...](../uploads/two_paths.jpg "Two paths")
 
 I think surfeit choice sometimes is just as bad as a lack of it, because it can get overwhelming. Trying to find your direction in a world where anything is possible is vaunting when there are an infinite number of paths to create. I still don't know what I can do in my own life to "make the most of it." I don't know what I can do that is meaningful both to others and to the beholder. I'm lost.
 
@@ -170,8 +170,6 @@ If there's one thing that teaching with HLAB has given me, it is respect for the
 While I was excited at the prospect of having another chance to teach the seminar I had created last summer, I wasn't fully prepared to teach it 7 times in rapid succession. Despite my efforts to focus on the exciting aspect of teaching, it was hard at times to stay energetic enough to deliver the same 80 minute seminar every single day, sometimes more than once. Teaching takes a **lot** of energy, I've come to realize, especially when you put your heart and soul into it. My seminar personally had a lot of gesticulations, activities, movement, and content, plus I really cared about making it as engaging as possible for each group of kids, so I had to put my full concentration into each session.
 
 ![Whiteboard post-seminar at TGG. I led an icebreaker where each of the students wrote down their name and an adjective starting with the first letter of their name. I also had each student write down a list of things that they always wanted to do in preparation for the 20% Project simulation, where I had students do whatever they wanted for 20% of the time in the seminar. Finally, I gave presentations on motivation and the four different types of leadership, and had my SA follow along and write down key vocabulary as I talked.**](../uploads/011220_hut_seminar_board_tgg.jpg "Whiteboard post-seminar at TGG")
-
-
 
 ![Whiteboard post-seminar at WeWork. I taught the exact same content as I did at TGG, except the interests and 20% Projects that the students had were different in each session. I also sometimes had different SAs, which is why the handwriting might look different.**](../uploads/010820_hut_seminar_board_wework_2.jpg "Whiteboard post-seminar at WeWork")
 
