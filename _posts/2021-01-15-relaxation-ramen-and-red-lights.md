@@ -6,7 +6,7 @@ header_feature_image: ../uploads/010320_sunshine_observatory_tokyo_view.jpg
 title_color: "#ffffff"
 comments: false
 tags:
-  - Japan20
+  - JapanWi20
 ---
 After a full day exploring Asakusa until 3:00 am, the only thing on my mind was getting into my bed and sleeping in. I guess that's one of the perks of not planning ahead – you're totally free to take a day off to rest!
 
