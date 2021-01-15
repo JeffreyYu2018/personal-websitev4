@@ -34,7 +34,7 @@ After packing up all my stuff and moving from the House by HLAB to my new AirBnB
 
 That's because that evening, I had something exciting planned that I hadn't done in a really long time. I was going to Tokyo's premier amusement park: **Yomiuri Land.**
 
-![View of Yomiuru Land from the top of a rollercoaster. It's aptly named "Jewellumination" for a reason.](../uploads/010420_yomiuri_land_view.jpg "View of Yomiuri land from the top of a rollercoaster. It's aptly named \"Jewellumination\" for a reason.")
+![View of Yomiuru Land from the top of a rollercoaster. It's aptly named "Jewellumination" for a reason.](../uploads/010420_yomiuri_land_view.jpg "View of Yomiuri land from the top of a rollercoaster. It's aptly named \\"Jewellumination\\" for a reason.")
 
 And I wouldn't be going alone. This time, my friend Risa, who was an EC (member of the Executive Committee on HLAB – basically, the Japanese student board that organized the summer school), was there to guide me around. Man, it was fun. Despite the surprisingly long lines, I was in awe as I gazed at all of the beautiful lights that were definitely racking up millions of dollars in energy costs.
 
