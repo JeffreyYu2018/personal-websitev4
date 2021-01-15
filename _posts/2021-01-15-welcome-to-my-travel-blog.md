@@ -6,8 +6,7 @@ header_feature_image: ../uploads/011720_acc_museum.jpg
 title_color: "#ffffff"
 caption: Picture of my ACC group at a museum trip
 comments: false
-tags:
-  - Beijing20
+tags: []
 ---
 ## **––– Hello ––– and welcome to my travel blog!**
 
@@ -15,7 +14,7 @@ My name is Jeffrey, and at the time of this post, I'm currently a sophomore at Y
 
 ### Japan, China, Taiwan ... oh my!
 
-![Asakusa Temple in Tokyo at night, right before the New Year](../uploads/123119_asakusa_temple_night.jpg "Asakusa Temple in Tokyo at night, right before the New Year")
+![Asakusa Temple at night, in Tokyo, a few hours before the New Year.](../uploads/123119_asakusa_temple_night.jpg "Asakusa Temple at night, in Tokyo, a few hours before the New Year. The line doesn't look too bad here, but boy, it got crazy.")
 
 > #### Asakusa Temple at night, in Tokyo, a few hours before the New Year. The line doesn't look too bad here, but boy, it got **crazy.**
 
@@ -25,9 +24,7 @@ Speaking of blog posts, I realize I'm now 19 years behind on my travels ... haha
 
 Whew. Now that I've gotten all the technicalities out of the way ... let's get blogging!
 
-![View of Tokyo from the Sunshine City Observatory in Ikebukuro](../uploads/010320_sunshine_observatory_tokyo_view.jpg "View of Tokyo from the Sunshine City Observatory in Ikebukuro")
-
-> #### *A stunning view of Tokyo from the Sunshine City Observatory in Ikebukuro.*
+![A stunning view of Tokyo from the Sunshine City Observatory in Ikebukuro.](../uploads/010320_sunshine_observatory_tokyo_view.jpg "A stunning view of Tokyo from the Sunshine City Observatory in Ikebukuro.")
 
 *Note:* I created this website by myself as a side project using some cool software*, so there might be a few bugs here and there on the site. However, I'll eventually be transitioning my blogs to a new website that I'm also creating. Until then, I'll temporarily post everything on this site.
 
