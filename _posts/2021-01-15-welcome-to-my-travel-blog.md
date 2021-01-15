@@ -8,9 +8,7 @@ caption: Picture of my ACC group at a museum trip
 comments: false
 tags: []
 ---
-## **––– Hello ––– and welcome to my travel blog!**
-
-My name is Jeffrey, and at the time of this post, I'm currently a sophomore at Yale University studying computer science, but I'm taking a semester off to travel. In this blog I'll share and reflect upon my travel experiences abroad, giving you a brief insight into my life. I've journalled before, but this is my first time blogging, so this is a new activity for me and I'm really excited!
+Hello – and welcome to my travel blog! My name is Jeffrey, and at the time of this post, I'm currently a sophomore at Yale University studying computer science, but I'm taking a semester off to travel. In this blog I'll share and reflect upon my travel experiences abroad, giving you a brief insight into my life. I've journalled before, but this is my first time blogging, so this is a new activity for me and I'm really excited!
 
 ### Japan, China, Taiwan ... oh my!
 
