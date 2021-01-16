@@ -2,7 +2,7 @@
 layout: post
 title: Stark truths
 date: 2020-05-19T21:15:48.261Z
-header_feature_image: ../uploads/051720_beautiful_park.jpg
+header_feature_image: ../uploads/051720_beautiful_park_cropped.jpg
 title_color: "#ffffff"
 comments: false
 tags:
