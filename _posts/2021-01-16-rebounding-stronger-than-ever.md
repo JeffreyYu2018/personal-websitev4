@@ -2,7 +2,7 @@
 layout: post
 title: Rebounding stronger than ever
 date: 2020-04-18T18:22:38.373Z
-header_feature_image: ../uploads/041720_yangmingshan_peak_hands_outstretched.jpg
+header_feature_image: ../uploads/041720_yangmingshan_peak_hands_outstretched_cropped.jpg
 title_color: "#ffffff"
 comments: false
 tags:
