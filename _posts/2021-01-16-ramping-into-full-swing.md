@@ -2,7 +2,7 @@
 layout: post
 title: Ramping into full swing
 date: 2020-04-26T18:44:57.035Z
-header_feature_image: ../uploads/042420_yuci_starbucks.jpg
+header_feature_image: ../uploads/042420_yuci_starbucks_cropped.jpg
 title_color: "#ffffff"
 comments: false
 tags:
