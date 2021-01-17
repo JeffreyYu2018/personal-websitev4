@@ -2,7 +2,7 @@
 layout: post
 title: An American sendoff
 date: 2020-06-03T04:00:08.579Z
-header_feature_image: ../uploads/060120_bello_jeff_nice.jpg
+header_feature_image: ../uploads/060120_bello_jeff_nice_cropped.jpg
 title_color: "#ffffff"
 comments: false
 tags:
