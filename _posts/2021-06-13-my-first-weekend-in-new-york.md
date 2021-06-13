@@ -61,7 +61,7 @@ I also explored a little beyond my immediate street and did some errands.
 
 ![Groceries in my fridge](../uploads/061321_filled_fridge_w_groceries.jpeg "Groceries in my fridge")
 
-![Me with a new haircut](../uploads/061321_new_haircut.jpeg "New haircut!")
+![New do'](../uploads/061321_new_haircut.jpeg "New do'")
 
 Just being in a new area makes these seemingly mundane tasks so much more interesting and lively.
 
