@@ -50,3 +50,17 @@ That, combined with coming home and laboriously unpacking everything, was how I 
 Thankfully my bed comfy, because I passed out on that thing. 
 
 # Settling In
+
+A night of well-rested sleep later, I was ready to tackle the backlog of errands and work that I had procrastinated doing on Saturday. Sunday was my errand and work day anyway, so it worked out perfectly.
+
+My morning and early afternoon was spent obsessively watching a rollercoaster of an French Open between Novak Djokovic and Stefano Tsitsipas, all while munching on some delicious breakfast at a random NYC place nearby.
+
+![Brunch dishes](../uploads/061321_brunch_king_kong.jpeg "A \"King Kong\" brunch, filled with a cornucopia of french toast, sausage, eggs, and other breakfast goodies.")
+
+I also explored a little beyond my immediate street and did some errands.
+
+![Groceries in my fridge](../uploads/061321_filled_fridge_w_groceries.jpeg "Groceries in my fridge")
+
+![Me with a new haircut](../uploads/061321_new_haircut.jpeg "New haircut!")
+
+Just being in a new area makes these seemingly mundane tasks so much more interesting and lively.
