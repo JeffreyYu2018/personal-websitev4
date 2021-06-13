@@ -36,3 +36,17 @@ After gaping in awe, I realized my hungry was growling and begging my brain to s
 My hometown has a decent number of restaurants, but we would never get anything as diverse as a place like Xian's there. So I was absolutely hyped to try something totally outside my taste bad's comfort zone.
 
 ![Xian Famous Foods - my meal](../uploads/061221_xian_famous_food.jpeg "Xian Famous Foods - my meal")
+
+To be completely honest, it was a little too spicy for my taste, after having eaten nothing spicy for the past few months xD but it was still pretty good, and a great change of pace. Not to mention, the activity of just sitting at a window and people-watching? 10/10. Beats the monotony of staring out my hometown window anyday.
+
+Food aside, my wonder hadn't expired yet, so I spent the next few hours continuing to wander the neighborhood.
+
+![Grocery store](../uploads/061221_chelsea_neighborhood_walking.jpeg "A random grocery store that piqued my interest. Not just any store, but a MEGA store.")
+
+That, combined with coming home and laboriously unpacking everything, was how I ended up spending the remainder of that evening. By nighttime, I was so exhausted that I just found the cheapest and laziest dinner option you could think of: Chipotle.
+
+![Chipotle dinner](../uploads/061221_chipotle.jpeg "Chipotle dinner in my apt")
+
+Thankfully my bed comfy, because I passed out on that thing. 
+
+# Settling In
