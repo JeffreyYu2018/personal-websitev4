@@ -64,3 +64,5 @@ I also explored a little beyond my immediate street and did some errands.
 ![Me with a new haircut](../uploads/061321_new_haircut.jpeg "New haircut!")
 
 Just being in a new area makes these seemingly mundane tasks so much more interesting and lively.
+
+\[being in the cafe blogging]
