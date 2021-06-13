@@ -66,3 +66,5 @@ I also explored a little beyond my immediate street and did some errands.
 Just being in a new area makes these seemingly mundane tasks so much more interesting and lively.
 
 \[being in the cafe blogging]
+
+\[rest of day - finding dinner and figuring out social events now that the boring logistical stuff is out of the way]
