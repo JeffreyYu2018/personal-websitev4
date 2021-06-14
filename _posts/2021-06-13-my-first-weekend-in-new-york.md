@@ -1,7 +1,8 @@
 ---
 layout: post
 title: My first weekend in New York
-date: 2021-06-13T22:15:25.370Z
+date: 2021-06-14T03:47:28.350Z
+header_feature_image: ../uploads/061321_dinner.jpeg
 title_color: "#ffffff"
 comments: false
 tags:
