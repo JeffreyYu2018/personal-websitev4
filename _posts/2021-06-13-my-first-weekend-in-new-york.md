@@ -1,6 +1,6 @@
 ---
 layout: post
-title: My first weekend in New York
+title: My first weekend in the Big Apple
 date: 2021-06-14T03:47:28.350Z
 header_feature_image: ../uploads/061321_dinner.jpeg
 title_color: "#ffffff"
@@ -62,7 +62,7 @@ I also explored a little beyond my immediate street and did some errands.
 
 ![Groceries in my fridge](../uploads/061321_filled_fridge_w_groceries.jpeg "Groceries in my fridge")
 
-![New do'](../uploads/061321_new_haircut.jpeg "New do'")
+![New do'?!](../uploads/061321_new_haircut.jpeg "New do'")
 
 Just being in a new area makes these seemingly mundane tasks so much more interesting and lively.
 
