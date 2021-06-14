@@ -36,17 +36,17 @@ After gaping in awe, I realized my hungry was growling and begging my brain to s
 
 My hometown has a decent number of restaurants, but we would never get anything as diverse as a place like Xian's there. So I was absolutely hyped to try something totally outside my taste bad's comfort zone.
 
-![Xian Famous Foods - my meal](../uploads/061221_xian_famous_food.jpeg "Xian Famous Foods - my meal")
+![Spicy cumin lamb burger and Mr. Q's pork noodles](../uploads/061221_xian_famous_food.jpeg "Xian Famous Foods - my meal")
 
 To be completely honest, it was a little too spicy for my taste, after having eaten nothing spicy for the past few months xD but it was still pretty good, and a great change of pace. Not to mention, the activity of just sitting at a window and people-watching? 10/10. Beats the monotony of staring out my hometown window anyday.
 
 Food aside, my wonder hadn't expired yet, so I spent the next few hours continuing to wander the neighborhood. I found a few gems, like a sick gym that gives me a company discount for working at EY (the sales associate also graduated from Vestal and went to Bing which was SUPER cool). Also found a few nifty shops, like a Milk Bar which I am 100% checking out when I'm craving ice cream one night. 
 
-![Grocery store](../uploads/061221_chelsea_neighborhood_walking.jpeg "A random grocery store that piqued my interest. Not just any store, but a MEGA store.")
+![A random grocery store that piqued my interest. Not just any store, but a MEGA store.](../uploads/061221_chelsea_neighborhood_walking.jpeg "Grocery store")
 
 Those excursions, combined with coming home and laboriously unpacking everything, was how I ended up spending the remainder of that evening. By nighttime, I was so exhausted that I just found the cheapest and laziest dinner option you could think of: Chipotle.
 
-![Chipotle dinner](../uploads/061221_chipotle.jpeg "Chipotle dinner in my apt")
+![Chipotle dinner in my apt](../uploads/061221_chipotle.jpeg "Chipotle dinner")
 
 Thankfully my bed comfy, because I passed out on that thing. 
 
@@ -56,7 +56,7 @@ A night of well-rested sleep later, I was ready to tackle the backlog of errands
 
 My morning and early afternoon was spent obsessively watching a rollercoaster of an French Open between Novak Djokovic and Stefano Tsitsipas, all while munching on some delicious breakfast at a random NYC place nearby.
 
-![Brunch dishes](../uploads/061321_brunch_king_kong.jpeg "A \\"King Kong\\" brunch, filled with a cornucopia of french toast, sausage, eggs, and other breakfast goodies.")
+![A \"King Kong\" brunch, filled with a cornucopia of french toast, sausage, eggs, and other breakfast goodies](../uploads/061321_brunch_king_kong.jpeg "Brunch dishes")
 
 I also explored a little beyond my immediate street and did some errands.
 
@@ -68,7 +68,7 @@ Just being in a new area makes these seemingly mundane tasks so much more intere
 
 In the evening, I blogged in a random cafe I found (resuming this beloved habit!), and even got into a nice conversation with a stranger about moving to New York. The New Yorkers I've met so far seem to be so friendly! Even with little gestures, like when I asked a group of girls if they could watch my stuff while I talked to the sales person, they did so enthusiastically and even cracked a small joke afterwards.  
 
-![Blogging in front of a cafe](../uploads/061321_cafe_blogging.jpeg "Blogging in front of a cafe. The street side seating is so nice in the summer!")
+![Blogging in front of a cafe. The street side seating is so nice in the summer!](../uploads/061321_cafe_blogging.jpeg "Blogging in front of a cafe")
 
 Following that blog I needed a real meal, so I grabbed dinner at this Asian fusion bowl restaurant near my place. It was a nice moment to chill and relax, and start looking into events to do in NYC later this week.
 
@@ -76,7 +76,7 @@ Following that blog I needed a real meal, so I grabbed dinner at this Asian fusi
 
 ![Asian fusion bowl restaurant interior](../uploads/061321_dinner_store_interior.jpeg "Asian fusion bowl restaurant interior")
 
-![Purple rice, grilled steak, and dandan tomatoes](../uploads/061321_dinner.jpeg "Gotta love people watching with a yummy bowl of purple rice, grilled steak, and dandan tomatoes")
+![Gotta love people watching with a yummy bowl of purple rice, grilled steak, and dandan tomatoes](../uploads/061321_dinner.jpeg "Purple rice, grilled steak, and dandan tomatoes")
 
 To cap off the day, I got home and cooked my breakfast (from home) for the next few days. It was weird because I had to use my bathroom sink as a kitchen sink, and there wasn't much space on my countertop, but hey, that's just New York for you. I'll get used to it soon enough.
 
