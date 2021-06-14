@@ -82,4 +82,6 @@ To cap off the day, I got home and cooked my breakfast (from home) for the next 
 
 ![A cooking mess... resulting in the creation of a yummy blueberry parfait and breakfast omelette mix!](../uploads/061321_first_cooking.jpeg "A cooking mess... resulting in the creation of a yummy blueberry parfait and breakfast omelette mix!")
 
+# The Future???
+
 What a move in period. Tomorrow I start my internship for real, along with my new regimented daily routine of meditation, writing, work, exercise, etc. As the past few days have been unstructured, I'm about to enter a new period of ordered productivity. But that's by self-choice, as its the environment in which I flourish best. The challenge this week will be settling into this new schedule and finding regular social events to do (e.g. right now I'm looking at classes at my local gym, or Meetup groups) Here's to what the week holds for me!
