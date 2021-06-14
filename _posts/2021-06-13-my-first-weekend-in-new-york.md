@@ -1,7 +1,7 @@
 ---
 layout: post
 title: My first weekend in the Big Apple
-date: 2021-06-14T03:47:28.350Z
+date: 2021-06-14T03:56:04.309Z
 header_feature_image: ../uploads/061321_dinner.jpeg
 title_color: "#ffffff"
 comments: false
