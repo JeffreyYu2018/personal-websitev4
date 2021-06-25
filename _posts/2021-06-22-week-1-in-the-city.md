@@ -7,7 +7,7 @@ comments: false
 tags:
   - ""
 ---
-*Apologies for the day-late blog - my Sunday was insanely busy and I only found time to squeeze in what has been a ROLLERCOASTER of a week this Tuesday Monday night. Anyway, excited to share everything that's transpired in my first full week in the city. It's hilarious how only a week has passed, and yet it feels like a lifetime ago.* 
+*Apologies for the supah-late blog - my Sunday was insanely busy and I only found time to squeeze in what has been a ROLLERCOASTER of a week in bits and pieces each day. Anyway, excited to share everything that's transpired in my first full week in the city. It's hilarious how only a week has passed, and yet it feels like a lifetime ago.* 
 
 "New York is intense." 
 
@@ -56,3 +56,51 @@ It's liberating to move to a new city where no one knows you. You can reinvent y
 ![name a better tuesday night than food with great company (meg and her bf)](../uploads/061521_japanese_dinner_with_meg_and_justin.jpeg "name a better tuesday night than food with great company (meg and her bf)")
 
 ![omurice, chicken katsu, and more.... SO OISHI](../uploads/061521_dinner_food.jpeg "omurice, chicken katsu, and more.... SO OISHI")
+
+# finding a routine
+
+There are some things which I can never give up wherever I travel, and health is one of them. I had researched gyms extensively before coming to the city, and was originally going to go for the cheapest option. (stingy saving habits die hard) However, I must've gotten too accustomed to having a home gym in my garage all year, because that 10 minute walk felt like a lifetime. Shifting from living at home the entire pandemic to walking everywhere in an urban city still left a lot to be desired.
+
+![guess which day was the one i moved into nyc ...](../uploads/061821_health_app_walking.png "guess which day was the one i moved into nyc ...")
+
+Imagine my surprise when the gym nearest my apartment, less than a 3 minute walk, happened to have a corporate partnership with EY, and could offer me a discount! It was the most expensive option out of all of the three, about $50 (so nothing as ludicrous as Equinox's $300 membership), but it came with around a 20% discount, and also complimentary access to any of the gyms across the city. Normally I wouldn't think much of that, but since each gym offered different classes (including yoga, pilates, and dance!), and I was looking to get into those things, I couldn't pass up the opportunity.
+
+![The gym just outside my house. Nothing spectacular, beyond the convenience.](../uploads/061821_nysc_gym.jpeg "The gym just outside my house. Nothing spectacular, beyond the convenience.")
+
+# genuine spontaneity
+
+but, even the meticulous and structured guy that i am, who wants to live in a world of total predictability? While my schedule is absolutely crammed and unfortunately doesn't leave much room for outings into the city, I committed to getting out into new areas whenever I could. That was my mentality when I chose to take a random stroll Friday night in Greenwich Village, a bustling nearby neighborhood.
+
+![couldn't resist seeing what the hype was all about after seeing the line stretching down half the street](../uploads/061821_gentile_gelato.jpeg "couldn't resist seeing what the hype was all about after seeing the line stretching down half the street")
+
+As fastidiously as I've been sticking to my diet, I couldn't help but cave and grab some of the famed gelato from this place. I've always been afraid of talking to strangers and making a scene, but I forced myself to overcome this fear by getting into a conversation with the well-dressed Italian man standing in line with his wife. I didn't think initially much of it, but after asking him about the gelato at the place, he went off on a 10 minute passionate tangent on how the gelato was one of the best in the city. He then proceeded to translate all the flavors and recommend his favorite flavors. It was pretty incredible. New Yorkers really are an interesting bunch, when you get to know them.
+
+Oh, and btw, that ice cream was delicious.
+
+![some almond and old cream flavor .... already forgot the italian name but it was DELISH](../uploads/061821_gentile_gelato_cup.jpeg "some almond and old cream flavor .... already forgot the italian name but it was DELISH")
+
+# organized fun
+
+as great as exploring the city is, unprompted, though, it's almost guaranteed that I would never run into some of the people that I actually DID want to run into at some point - my fellow EY interns. As a result, my "one new area a day" challenge came in handy here, as I used a trick that my brother suggested: say I'm going to go do an event, and then say people are welcome to come "with." This makes it way less pressuring for people to come along. And plus, I was planning to explore solo anyway, so it was pretty genuine.
+
+![didn't even realize Hoboken and NJ were so dang close](../uploads/061921_hoboken_path_station.jpeg "didn't even realize Hoboken and NJ were so dang close")
+
+luckily, I didn't have to plan the first outing, as I hopped on some other intern's meetup instead. Taiwan was **really** great practice for learning how to proactively build social networks, as our recruiters didn't really host in-person events the first week. I knew sporadic social events wouldn't be enough for me, so I decided to take it upon myself to start hosting some of the socials. For this one in particular, it was pretty loosely-organized (just meeting in front of the Hoboken EY office), which was cool with me. here were supposed to be like 8 people, but not surprisingly, as I've learned over the year, people are flakes, and only three of us showed up, including me. But it didn't really bother me - that type of noncommital is something I've grown to expect by now, and it only meant that I got more time to soak in the beautiful views ...
+
+![an escape from the city, in a beautiful waterfront overlooking Manhattan](../uploads/061921_hoboken_riverside_fountain.jpeg "an escape from the city, in a beautiful waterfront overlooking Manhattan")
+
+enjoy my first genuine NYC burger which absolutely SLAPPED ...
+
+![angus steak and pepper burger ... Ram said it'd be yummy, and he wasn't kidding.](../uploads/061921_burger.jpeg "angus steak and pepper burger ... Ram said it'd be yummy, and he wasn't kidding.")
+
+and unlike when shoved in a breakout room with 20 people, genuinely connect with two pretty damn cool interns. 
+
+![Jeff (left), Ram (middle), and Pranay (right) in the first social of the summer!](../uploads/061921_hoboken_interns_meal.jpeg "Jeff (left), Ram (middle), and Pranay (right) in the first social of the summer!")
+
+Funnily enough, they were actually both from the Hoboken area, so I also got a free, impromptu tour of downtown afterwards, getting to see all the cool spots in town.
+
+![a surprisingly bustling suburban street nestled outside the city. downtown Hoboken.](../uploads/061921_hoboken_downtown.jpeg "a surprisingly bustling suburban street nestled outside the city. downtown Hoboken.")
+
+![apparently this bakery was hosted on some famous baking show?? whatdya know](../uploads/061921_carlos_bake_shop_exterior.jpeg "apparently this bakery was hosted on some famous baking show?? whatdya know")
+
+![it's so damn hard to stick to a diet in the face of temptations like this](../uploads/061921_carlos_bakery_interior.jpeg "it's so damn hard to stick to a diet in the face of temptations like this")
