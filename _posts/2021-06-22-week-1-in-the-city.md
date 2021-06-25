@@ -5,7 +5,7 @@ date: 2021-06-22T02:58:20.911Z
 title_color: "#ffffff"
 comments: false
 tags:
-  - ""
+  - NycSu21
 ---
 *Apologies for the supah-late blog - my Sunday was insanely busy and I only found time to squeeze in what has been a ROLLERCOASTER of a week in bits and pieces each day. Anyway, excited to share everything that's transpired in my first full week in the city. It's hilarious how only a week has passed, and yet it feels like a lifetime ago.* 
 
@@ -49,13 +49,23 @@ I legitimately derived so much joy from stopping in Trader Joes and Uniqlo that 
 
 ![bigger TJ's are DEFINITELY better](../uploads/061621_tj.jpeg "bigger TJ's are DEFINITELY better")
 
-# socially: \[title here]
+![you'll never find someone who geeks out about uniqlo more than me](../uploads/061921_uniqlo_interior.jpeg "you'll never find someone who geeks out about uniqlo more than me")
+
+at the same time, sometimes you gotta recharge, and stopping in a small shaved ice dessert cafe to get some work done is a joy you can only get in a city like the Big Apple.
+
+![matcha and black sesame shaved ice ... as the young'uns call it, "absolute gas"](../uploads/061921_shaved_ice.jpeg "matcha and black sesame shaved ice ... as the young'uns call it, \"absolute gas\"")
+
+# socially: from the old times
 
 It's liberating to move to a new city where no one knows you. You can reinvent yourself, shed off old baggage. But it's also terrifying and incredibly easy to become lonely, a migrant. But I'm lucky to have a few buddies from my past, who are there to ease me into my new life.
 
 ![name a better tuesday night than food with great company (meg and her bf)](../uploads/061521_japanese_dinner_with_meg_and_justin.jpeg "name a better tuesday night than food with great company (meg and her bf)")
 
 ![omurice, chicken katsu, and more.... SO OISHI](../uploads/061521_dinner_food.jpeg "omurice, chicken katsu, and more.... SO OISHI")
+
+having a friend in the city is also great for those late night, 4 am rooftop birthday parties that only they know about ;)
+
+![just jaw. dropping. views.](../uploads/061921_rooftop_view_nighttime_nyc.jpeg "just jaw. dropping. views.")
 
 # finding a routine
 
@@ -78,6 +88,12 @@ As fastidiously as I've been sticking to my diet, I couldn't help but cave and g
 Oh, and btw, that ice cream was delicious.
 
 ![some almond and old cream flavor .... already forgot the italian name but it was DELISH](../uploads/061821_gentile_gelato_cup.jpeg "some almond and old cream flavor .... already forgot the italian name but it was DELISH")
+
+when I say New Yorkers are interesting though ... I'm not kidding. I went out Saturday night to wander around, stumbling into the Chinatown and Little Italy area after shopping in SoHo on a whim.
+
+![such a quaint street!! i stumbled on this place by chance because i loved the vibe, but apparently Mulberry St is THE place to go in Little Italy](../uploads/061921_little_italy.jpeg "such a quaint street!! i stumbled on this place by chance because i loved the vibe, but apparently Mulberry St is THE place to go in Little Italy")
+
+![mulberry street was even more lively at night ... so much ENERGY! love it](../uploads/061921_little_italy_night_mulberry_st.jpeg "mulberry street was even more lively at night ... so much ENERGY! love it")
 
 # organized fun
 
@@ -104,3 +120,7 @@ Funnily enough, they were actually both from the Hoboken area, so I also got a f
 ![apparently this bakery was hosted on some famous baking show?? whatdya know](../uploads/061921_carlos_bake_shop_exterior.jpeg "apparently this bakery was hosted on some famous baking show?? whatdya know")
 
 ![it's so damn hard to stick to a diet in the face of temptations like this](../uploads/061921_carlos_bakery_interior.jpeg "it's so damn hard to stick to a diet in the face of temptations like this")
+
+![cute little island walkway on the hoboken riverfront](../uploads/061921_jutting_island_hoboken.jpeg "cute little island walkway on the hoboken riverfront")
+
+![wonder whose office this is O-O](../uploads/061921_ey_hoboken_office.jpeg "wonder whose office this is O-O")
