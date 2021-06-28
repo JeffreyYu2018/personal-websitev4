@@ -2,12 +2,13 @@
 layout: post
 title: Week Uno in the City
 date: 2021-06-22T02:58:20.911Z
+header_feature_image: ../uploads/062021_smorgasburg_jeff_danielle.jpeg
 title_color: "#ffffff"
 comments: false
 tags:
   - NycSu21
 ---
-*Apologies for the supah-late blog - my Sunday was insanely busy and I only found time to squeeze in what has been a ROLLERCOASTER of a week in bits and pieces each day. Anyway, excited to share everything that's transpired in my first full week in the city. It's hilarious how only a week has passed, and yet it feels like a lifetime ago.* 
+*Apologies for the supah-late blog - my days in the city have been unbelievably packed, and I've barely had time to squeeze in what was a ROLLERCOASTER of an opening week. Anyway, excited to share everything that's transpired in my first full week in the city. It's hilarious how only a week has passed, and yet it feels like a lifetime ago.* 
 
 "New York is intense." 
 
@@ -53,7 +54,7 @@ I legitimately derived so much joy from stopping in Trader Joes and Uniqlo that 
 
 at the same time, sometimes you gotta recharge, and stopping in a small shaved ice dessert cafe to get some work done is a joy you can only get in a city like the Big Apple.
 
-![matcha and black sesame shaved ice ... as the young'uns call it, "absolute gas"](../uploads/061921_shaved_ice.jpeg "matcha and black sesame shaved ice ... as the young'uns call it, \"absolute gas\"")
+![matcha and black sesame shaved ice ... as the young'uns call it, "absolute gas"](../uploads/061921_shaved_ice.jpeg "matcha and black sesame shaved ice ... as the young'uns call it, \\"absolute gas\\"")
 
 # socially: from the old times
 
@@ -76,6 +77,8 @@ There are some things which I can never give up wherever I travel, and health is
 Imagine my surprise when the gym nearest my apartment, less than a 3 minute walk, happened to have a corporate partnership with EY, and could offer me a discount! It was the most expensive option out of all of the three, about $50 (so nothing as ludicrous as Equinox's $300 membership), but it came with around a 20% discount, and also complimentary access to any of the gyms across the city. Normally I wouldn't think much of that, but since each gym offered different classes (including yoga, pilates, and dance!), and I was looking to get into those things, I couldn't pass up the opportunity.
 
 ![The gym just outside my house. Nothing spectacular, beyond the convenience.](../uploads/061821_nysc_gym.jpeg "The gym just outside my house. Nothing spectacular, beyond the convenience.")
+
+It's taken a while to adjust and coordinate with Jake (my personal trainer who's a good friend of mine) on what machines are available, what routines work best with my hectic schedule, etc. But it's deload week, which means shorter workouts and more flexibility with figuring things out.  
 
 # genuine spontaneity
 
@@ -124,3 +127,17 @@ Funnily enough, they were actually both from the Hoboken area, so I also got a f
 ![cute little island walkway on the hoboken riverfront](../uploads/061921_jutting_island_hoboken.jpeg "cute little island walkway on the hoboken riverfront")
 
 ![wonder whose office this is O-O](../uploads/061921_ey_hoboken_office.jpeg "wonder whose office this is O-O")
+
+Also managed to organize something on my own, heading to Smorgasburg, a major food festival in Prospect Park, Brooklyn, and unleash my inner foodie. It was relatively far for me, but it was a great excuse to get out of Manhattan and do some of that city-wide travelling I said I would do earlier on.
+
+![Entrance to Prospect Park in Brooklyn, on a blazingly beautiful day](../uploads/062021_prospect_park_front.jpeg "Entrance to Prospect Park in Brooklyn, on a blazingly beautiful day")
+
+![Brisket taco and some drink (forgot what it was)](../uploads/062021_smorgasburg_meal.jpeg "Brisket taco and some drink (forgot what it was)")
+
+![The Taiwan feels ... the Taiwan feels](../uploads/062021_taiwan_stand.jpeg "The Taiwan feels ... the Taiwan feels")
+
+I got a ton of interest, over 14 people who I added to a group chat, but only one other person showed up, Danielle. Looks like flaking is universal, but to be honest, it didn't really get on my psyche that much. I guess I've been used to it as I've gotten older and become more cynical, and not let it get to me personally. All the better though, as I got to really have some time to get to know another intern, Danielle! Quality over quantity.
+
+![Me and Danielle, ](../uploads/062021_smorgasburg_jeff_danielle.jpeg)
+
+If there's one thing I've noticed over the past few study abroad experiences, though, it's that I've got SUPER comfortable with opening up and talking to strangers in new situations. It's crazy how much I've changed since that shy, introverted, closed off boy three years ago. I felt positive, open to talking to strangers, and just so incredibly socially charged that Danielle even misidentified me as extroverted. HAHA.
