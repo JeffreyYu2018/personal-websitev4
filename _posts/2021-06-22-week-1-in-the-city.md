@@ -12,39 +12,39 @@ tags:
 
 "New York is intense." 
 
-Those are the words that Leila, a friend-of-a-friend said to me on Saturday night at a party, and it resonated with me. New York is the type of place that either breaks you or makes you, fills you with opportunities or loneliness and dread. It's what you make of it, but it's also a place that **amplifies** your experiences. It gives you the lowest lows, but also the highest highs. 
+Those are the words that Leila, a friend-of-a-friend said to me on Saturday night at 3 am on a rooftap bar hundreds of feet in the sky. And for all purposes, I agreed wholeheartedly. New York is the type of place that either breaks you or makes you; fills you with opportunities or loneliness and dread. It's what you make of it ... a place that **amplifies** your experiences. It gives you the lowest lows, but also the highest highs. 
 
 If pandemic life during covid was a stale cracker, then a summer in the city is like a shot of energy drink. It's a punch in the face.
 
-# the city: \[title here]
+# one word to describe urban life? stimulating
 
-![While everything is new, at least my breakfast is offering some semblance of normalcy ...](../uploads/061421_breakfast.jpeg "While everything is new, at least my breakfast is offering some semblance of normalcy ...")
+![While everything is unfamiliar, at least my breakfast is offering some semblance of normalcy ...](../uploads/061421_breakfast.jpeg "While everything is unfamiliar, at least my breakfast is offering some semblance of normalcy ...")
 
-On one hand, New York provides some amazing opportunities and conveniences. In many senses, it's a microcosm of how I've found work at EY so far: overwhelming, stimulating, advancement. From a first impression, EY feels like a place where I can rocket my career from learnings and networking. There's SO many people and resources that I'm excited to explore and dive into, from badges to volunteering to professional groups. At the same time, especially for the first week, it was overwhelming trying to create some structure for myself. 
+On one hand, New York provides some amazing opportunities and conveniences. In many senses, it's a microcosm of how I've found work at EY so far: overwhelming, stimulating, advancement. From a first impression, NYC and EY feels like a place where I can rocket my life and career, from learnings and networking to events and socials. There's SO many people and resources that I'm excited to explore and dive into, from badges to volunteering to professional groups. At the same time, especially for the first week, it was overwhelming trying to create some structure for myself. 
 
-![Korean fried chicken sponsored by EY. The closest place back home is 300 miles away, while here its practically right next to my doorstep. That's NYC for ya!](../uploads/061421_kbbq_lunch.jpeg "Korean fried chicken sponsored by EY. The closest place back home is 300 miles away, while here its practically right next to my doorstep. That's NYC for ya!")
+![Korean fried chicken sponsored by EY. The closest place back home is 300 miles away, while here its right next to my doorstep. ombellibable](../uploads/061421_kbbq_lunch.jpeg "Korean fried chicken sponsored by EY. The closest place back home is 300 miles away, while here its right next to my doorstep. ombellibable")
 
-If there's one thing I love most, though, it's the spontaneity. It's the ability to take an impromptu walk down the street next to my house while munching on some snap! mallow! pop! ice cream, and enjoy the day. Or CitiBike through the streets of Chelsea, pausing and gasping in awe at the gorgeous weather. 
+If there's one thing I love most, though, it's the spontaneity. It's the ability to take an impromptu walk in the sunshine down the street while munching on some snap! mallow! pop! ice cream. Or CitiBike through the bustling streets of Chelsea, pausing and gasping in awe at the gorgeous weather. 
 
 ![](../uploads/061421_ample_creamery_ice_cream.jpeg)
 
 ![](../uploads/061621_chelsea_avenue.jpeg)
 
-Or it's stopping by a random, quaint coffee, getting into a conversation with the bartender about the best haircut spot in town, building a social life in a new city, and chatting with someone from a totally different walk of life.
+Or it's stopping by a random, quaint cafe, getting into a conversation with the bartender about the best haircut spot in town, building a social life in a new city, and hearing about a totally different walk of life.
 
 ![quaint and cozy ... the perfect place to plop down on a rainy monday night](../uploads/061421_cafe_interior.jpeg "quaint and cozy ... the perfect place to plop down on a rainy monday night")
 
-![turkey + blog = best combo](../uploads/061421_cafe_night.jpeg "turkey + blog = best combo")
+![turkey + blogging = best chill combo](../uploads/061421_cafe_night.jpeg "turkey + blogging = best chill combo")
 
 ![had to ignore the new yorkers strolling by me as i gaped at the beauty of this architecture](../uploads/061421_architecture_beautiful.jpeg "had to ignore the new yorkers strolling by me as i gaped at the beauty of this architecture")
 
-Anyone who knows me well knows how much I love to constantly be on the move (they called this Zhuangzian style in my Ancient Chinese class). But some of my brightest moments have occurred in the innocuous, like stopping to admire some of my favorite stores on a chance walk.
+Anyone who knows me well knows how much I love to constantly be on the move (in Zhuangzian style, according to my Ancient Chinese Thought class). But some of my brightest moments have occurred in the innocuous, like stopping to admire some of my favorite stores on a chance walk.
 
 ![](../uploads/061621_muji.jpeg)
 
 ![](../uploads/061621_toto.jpeg)
 
-I legitimately derived so much joy from stopping in Trader Joes and Uniqlo that I felt like I had ascended to some consumerist heaven.
+I legitimately derived so much joy from stopping in Trader Joes and Uniqlo that I felt like I had ascended to consumerist heaven.
 
 ![Trader Joe's paradise of greek yogurt flavors](../uploads/061621_tj_yogurt_heaven.jpeg "Trader Joe's paradise of greek yogurt flavors")
 
@@ -54,9 +54,9 @@ I legitimately derived so much joy from stopping in Trader Joes and Uniqlo that 
 
 at the same time, sometimes you gotta recharge, and stopping in a small shaved ice dessert cafe to get some work done is a joy you can only get in a city like the Big Apple.
 
-![matcha and black sesame shaved ice ... as the young'uns call it, "absolute gas"](../uploads/061921_shaved_ice.jpeg "matcha and black sesame shaved ice ... as the young'uns call it, \\"absolute gas\\"")
+![matcha and black sesame shaved ice ... as the young'uns call it, 'absolute gas'](../uploads/061921_shaved_ice.jpeg "matcha and black sesame shaved ice ... as the young'uns call it, 'absolute gas'")
 
-# socially: from the old times
+# a migrant growing his roots 
 
 It's liberating to move to a new city where no one knows you. You can reinvent yourself, shed off old baggage. But it's also terrifying and incredibly easy to become lonely, a migrant. But I'm lucky to have a few buddies from my past, who are there to ease me into my new life. And also there to support me in my self-improvement goals, my adventurous lifestyle, and my terrible jokes and effacing sense of humor ;) ... okay, maybe not that last one.
 
@@ -64,7 +64,7 @@ It's liberating to move to a new city where no one knows you. You can reinvent y
 
 ![omurice, chicken katsu, and more.... SO OISHI](../uploads/061521_dinner_food.jpeg "omurice, chicken katsu, and more.... SO OISHI")
 
-having a friend in the city is also great for those late night, 4am rooftop birthday parties that only they know about ;) all those fashion changes helped me blend right into the smart casual atmosphere, and even though I didn't drink, I was able to match the vibe and fit right into the social dynamics. It was fun!
+having a friend in the city is also great for those late night, 4am rooftop birthday parties that only true New Yorkers know about ;) all those fashion changes helped me blend right into the smart casual atmosphere, and even though I didn't drink, I was able to match the vibe and fit right into the social dynamics. It was fun ... some of the first fun I've had in months of quarantine.
 
 ![just jaw. dropping. views.](../uploads/061921_rooftop_view_nighttime_nyc.jpeg "just jaw. dropping. views.")
 
@@ -84,7 +84,7 @@ Imagine my surprise when the gym nearest my apartment, less than a 3 minute walk
 
 It's taken a while to adjust and coordinate with Jake (my personal trainer who's a good friend of mine) on what machines are available, what routines work best with my hectic schedule, etc. But we treated it as a deload week, which meant shorter workouts and more flexibility with figuring things out. Jake's really helpful in being flexible on that front. 
 
-Another thing that's been a complete overhaul of my life at home is nutrition. As nice as my apartment is, it's still pretty cramped, and the lack of space and sink means weekly meal prep is a logistical nightmare. Especially because I've been trying to watch my macros. As a result, I decided to take the financial hit and buy pre-made meals from ICON Meals after researching a lot of different companies. It's really not that insane to be honest - shipping is free, the meals are freezable, and the pricing is slightly fairer than what Yale Dining would charge. What I really like about ICON is that I can easily customize the portion sizes so I match my macros exactly. And, after the first batch arrived on Tuesday,
+Another thing that's been a complete overhaul of my life at home is nutrition. As nice as my apartment is, it's still pretty cramped, and the lack of space and sink means weekly meal prep is a logistical nightmare. Especially because I've been trying to watch my macros. As a result, I decided to take the financial hit and buy pre-made meals from ICON Meals after researching a lot of different companies. It's really not that insane to be honest - shipping is free, the meals are freezable, and the pricing is slightly fairer than what Yale Dining would charge. What I really like about ICON is that I can easily customize the portion sizes so I match my macros exactly. And, after the first batch arrived on Tuesday, I was hooked.
 
 ![The 14 ICON meals came vacuum sealed and packaged in dry ice ... how dope is that?!](../uploads/061521_premade_icon_meals_box.jpeg "The 14 ICON meals came vacuum sealed and packaged in dry ice ... how dope is that?!")
 
@@ -92,7 +92,7 @@ Beyond nutrition and the gym, I started up another habit that I've been meaning 
 
 Not all habits are enjoyable. Waking up at 7 am each day for work to fit in breakfast and my morning routine is a drag. Working 9-5 and sitting in 8-hour zoom calls (yes, you read that right) for training is a drag. But I'm trying to focus on the positive, and capitalizing on my time here in the city.
 
-# genuine spontaneity
+# going off-script
 
 but, even the meticulous and structured guy that i am, who wants to live in a world of total predictability? While my schedule is absolutely crammed and unfortunately doesn't leave much room for outings into the city, I committed to getting out into new areas whenever I could. That was my mentality when I chose to take a random stroll Friday night in Greenwich Village, a bustling nearby neighborhood.
 
@@ -110,7 +110,7 @@ when I say New Yorkers are interesting though ... I'm not kidding. I went out Sa
 
 ![mulberry street was even more lively at night ... so much ENERGY! love it](../uploads/061921_little_italy_night_mulberry_st.jpeg "mulberry street was even more lively at night ... so much ENERGY! love it")
 
-# intern meetups: tours of hoboken and smorgasburg 
+# interns meet hoboken and smorgasburg 
 
 as great as exploring the city is, unprompted, though, it's almost guaranteed that I would never run into some of the people that I actually DID want to run into at some point - my fellow EY interns. As a result, my "one new area a day" challenge came in handy here, as I used a trick that my brother suggested: say I'm going to go do an event, and then say people are welcome to come "with." This makes it way less pressuring for people to come along. And plus, I was planning to explore solo anyway, so it was pretty genuine.
 
