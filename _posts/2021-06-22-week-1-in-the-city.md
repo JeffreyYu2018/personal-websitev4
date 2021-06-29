@@ -12,7 +12,7 @@ tags:
 
 "New York is intense." 
 
-Those are the words that a friend-of-a-friend said to be on Saturday night at a party, and it resonated with me. New York is the type of place that either breaks you or makes you, fills you with opportunities or loneliness and dread. It's what you make of it, but it's also a place that **amplifies** your experiences. It gives you the lowest lows, but also the highest highs. 
+Those are the words that Leila, a friend-of-a-friend said to me on Saturday night at a party, and it resonated with me. New York is the type of place that either breaks you or makes you, fills you with opportunities or loneliness and dread. It's what you make of it, but it's also a place that **amplifies** your experiences. It gives you the lowest lows, but also the highest highs. 
 
 If pandemic life during covid was a stale cracker, then a summer in the city is like a shot of energy drink. It's a punch in the face.
 
@@ -20,7 +20,7 @@ If pandemic life during covid was a stale cracker, then a summer in the city is 
 
 ![While everything is new, at least my breakfast is offering some semblance of normalcy ...](../uploads/061421_breakfast.jpeg "While everything is new, at least my breakfast is offering some semblance of normalcy ...")
 
-On one hand, New York provides some amazing opportunities. From the people, the activities, it's all about dense convenience. In many senses, it's a microcosm of how I've found work at EY so far: overwhelming, stimulating, advancement. 
+On one hand, New York provides some amazing opportunities and conveniences. In many senses, it's a microcosm of how I've found work at EY so far: overwhelming, stimulating, advancement. There's SO many people and resources that I'm excited to explore and dive in. At the same time, especially for the first week, it was overwhelming trying to create some structure for myself. 
 
 ![Korean fried chicken sponsored by EY. The closest place back home is 300 miles away, while here its practically right next to my doorstep. That's NYC for ya!](../uploads/061421_kbbq_lunch.jpeg "Korean fried chicken sponsored by EY. The closest place back home is 300 miles away, while here its practically right next to my doorstep. That's NYC for ya!")
 
@@ -68,7 +68,7 @@ having a friend in the city is also great for those late night, 4 am rooftop bir
 
 ![just jaw. dropping. views.](../uploads/061921_rooftop_view_nighttime_nyc.jpeg "just jaw. dropping. views.")
 
-# finding a routine
+# routine and habit
 
 There are some things which I can never give up wherever I travel, and health is one of them. I had researched gyms extensively before coming to the city, and was originally going to go for the cheapest option. (stingy saving habits die hard) However, I must've gotten too accustomed to having a home gym in my garage all year, because that 10 minute walk felt like a lifetime. Shifting from living at home the entire pandemic to walking everywhere in an urban city still left a lot to be desired.
 
@@ -78,7 +78,15 @@ Imagine my surprise when the gym nearest my apartment, less than a 3 minute walk
 
 ![The gym just outside my house. Nothing spectacular, beyond the convenience.](../uploads/061821_nysc_gym.jpeg "The gym just outside my house. Nothing spectacular, beyond the convenience.")
 
-It's taken a while to adjust and coordinate with Jake (my personal trainer who's a good friend of mine) on what machines are available, what routines work best with my hectic schedule, etc. But it's deload week, which means shorter workouts and more flexibility with figuring things out.  
+It's taken a while to adjust and coordinate with Jake (my personal trainer who's a good friend of mine) on what machines are available, what routines work best with my hectic schedule, etc. But we treated it as a deload week, which meant shorter workouts and more flexibility with figuring things out. Jake's really helpful in being flexible on that front. 
+
+Another thing that's been a complete overhaul of my life at home is nutrition. As nice as my apartment is, it's still pretty cramped, and the lack of space and sink means weekly meal prep is a logistical nightmare. Especially because I've been trying to watch my macros. As a result, I decided to take the financial hit and buy pre-made meals from ICON Meals after researching a lot of different companies. It's really not that insane to be honest - shipping is free, the meals are freezable, and the pricing is slightly fairer than what Yale Dining would charge. What I really like about ICON is that I can easily customize the portion sizes so I match my macros exactly. And, after the first batch arrived on Tuesday,
+
+![The 14 ICON meals came packaged in dry ice ... how dope is that?!](../uploads/061521_premade_icon_meals_box.jpeg "The 14 ICON meals came packaged in dry ice ... how dope is that?!")
+
+Beyond nutrition and the gym, I started up another habit that I've been meaning to resume for a while: meditation! My buddy Zach from Taiwan helped me get a free subscription to a meditation app called Waking Up, and I've taken it upon myself to spend 10 minutes each morning before work to calm my mind. It's really done wonders for giving me that peace of mind and lack of insanity for even a small period during the day. While I must admit that I'm far from a meditation master, and my thoughts often cloud my mind and surface like flies from a jar, I do think learning to "sharpen my mind" is a skill I'll eventually develop through this consistent practice. 
+
+Not all habits are enjoyable. Waking up at 7 am each day for work to fit in breakfast and my morning routine is a drag. 
 
 # genuine spontaneity
 
@@ -140,4 +148,28 @@ I got a ton of interest, over 14 people who I added to a group chat, but only on
 
 ![Me and Danielle, ](../uploads/062021_smorgasburg_jeff_danielle.jpeg)
 
-If there's one thing I've noticed over the past few study abroad experiences, though, it's that I've got SUPER comfortable with opening up and talking to strangers in new situations. It's crazy how much I've changed since that shy, introverted, closed off boy three years ago. I felt positive, open to talking to strangers, and just so incredibly socially charged that Danielle even misidentified me as extroverted. HAHA.
+If there's one thing I've noticed over the past few study abroad experiences, though, it's that I've got SUPER comfortable with opening up and talking to strangers in new situations. It's crazy how much I've changed since that shy, introverted, closed off boy three years ago. I felt positive, open to talking to strangers, and just so incredibly socially charged that Danielle even misidentified me as extroverted. HAHA.  
+
+Intern socials are one way to meet people, but one thing I've noticed is that despite there being HUNDREDS of interns in our class, very, very few in proportion are willing to meet up, for logistical or personal reasons. Like, our GroupMes have 300+ people, but there might only be ~50 people max who are even interested in socializing, and only 1-25 of them will actually go to events. It's kinda sad, but I haven't let it get to my psyche. Instead, I've tried to fill that void by joining some classes and hobbies, not just to meet new people, but also because they align really well with my goals to get out of my comfort zone and confront my fears. 
+
+This week, the big event was signing up for a comedy improv class on Monday. I've always been TERRIFIED of performing and making a fool of myself on stage. Sure, I've performed in recitals and stuff, but that type of performance is expected. Comedy improv though? You could easily make a fool of yourself. But that's exactly what I know I should do it, so I signed up for a Sunday class to push myself. When else will I get the opportunity to do something like this? And while I hesitated so, so much to sign up, I felt a deeper sense of pride and relief in the days afterwards, coming from knowing that I was living my life the way I wanted to. 
+
+# strangers and spice
+
+I wasn't sure if I was going to include this section here, but I decided that it would be against my goals if I didn't. It's been my goal to open up and be honest to the people around me, and this is one step in that direction. 
+
+One thing I've always struggled with is learning to open myself up socially. 
+
+\[Being able to brighten people's days and not just go through life on autopilot, but actively throw myself out of my comfort zone each and every day.] 
+
+\[talking to strangers habit - throughout the week, just complimenting people on their clothes and learning to polarize. Something I've always wanted to work on about myself was not being a bystander, and this was.an extension of smile routine in Taiwan. Some experiences were minor, like complimenting a guy on his JCrew tshirt in Rite Aid. Crazy experiences including meeting Andrew in the cafe on Monday, and learning where to get my haircut and how New Yorkers are genuinely nice people if you get to know them.]
+
+As for spicing things up ... let's take about a little romance :p yessir, your boy is on the dating market. I've always been terrified of leaving myself vulnerable and putting myself out there. But after two years of self-development, meeting some incredible people abroad with healthy relationships, and some nudging from some important friends and family, I decided to take the plunge and put myself on all the major ones: Tinder, Coffee and Bagel, Bumble, and Hinge. Won't go into too much detail, but it's been an absolute rollercoaster. 
+
+I got very addicted to swiping at the beginning. After being at home for so long, being in the middle of nowhere, it was crazy to be with so many people my age around me. The even crazier thing? After wasting tons of time on Tinder with no results, I was getting SO many matches on Hinge. I attribute it to being able to set girls who are my demographic and type, but I found some of the matches I got were pretty good fits. As someone who's always struggled with self-esteem, that was a major validation boost.
+
+Of course, all of it came crashing down when I discovered the truth about the NY dating market, and how flakey it is. I didn't do a rigorous statistical analysis, but I would say in that first week, out of the 13 matches I got (which was a mind blowing number for someone who didn't expect any), 70% didn't respond to the first message, and the other 30% got a single message in before being completely ghosted. That was pretty soul crushing, putting so many hours swiping only for things to lead to a dead end. Thursday in particular was a rough night, and I could feel the negative thoughts swirling in my head like ominous clouds. 
+
+# in sum
+
+If there's one thing I learned early on in the week that's stuck with me to this point, it's that all of my valuable experiences have happened OUTSIDE my apartment, and as much as I hate things that push me outside of my comfort zone, I know that doing these types of activities will help me grow so much, and be the most memorable activities from this summer.
