@@ -1,15 +1,13 @@
 ---
 layout: post
 title: Week Uno in the City
-date: 2021-06-22T02:58:20.911Z
+date: 2021-06-21T02:58:00.000Z
 header_feature_image: ../uploads/061921_rooftop_view_nighttime_nyc.jpeg
 title_color: "#ffffff"
 comments: false
 tags:
   - NycSu21
 ---
-*Apologies for the supah-late blog - my days in the city have been unbelievably packed, and I've barely had time to squeeze in what was a ROLLERCOASTER of an opening week. Anyway, excited to share everything that's transpired in my first full week in the city. It's hilarious how only a week has passed, and yet it feels like a lifetime ago.* 
-
 "New York is intense." 
 
 Those are the words that Leila, a friend-of-a-friend said to me on Saturday night at 3 am on a rooftap bar hundreds of feet in the sky. And for all purposes, I agreed wholeheartedly. New York is the type of place that either breaks you or makes you; fills you with opportunities or loneliness and dread. It's what you make of it ... a place that **amplifies** your experiences. It gives you the lowest lows, but also the highest highs. 
@@ -56,7 +54,7 @@ at the same time, sometimes you gotta recharge, and stopping in a small shaved i
 
 ![matcha and black sesame shaved ice ... as the young'uns call it, 'absolute gas'](../uploads/061921_shaved_ice.jpeg "matcha and black sesame shaved ice ... as the young'uns call it, 'absolute gas'")
 
-# a migrant growing his roots 
+# a migrant growing his roots
 
 It's liberating to move to a new city where no one knows you. You can reinvent yourself, shed off old baggage. But it's also terrifying and incredibly easy to become lonely, a migrant. But I'm lucky to have a few buddies from my past, who are there to ease me into my new life. And also there to support me in my self-improvement goals, my adventurous lifestyle, and my terrible jokes and effacing sense of humor ;) ... okay, maybe not that last one.
 
@@ -110,7 +108,7 @@ when I say New Yorkers are interesting though ... I'm not kidding. I went out Sa
 
 ![mulberry street was even more lively at night ... so much ENERGY! love it](../uploads/061921_little_italy_night_mulberry_st.jpeg "mulberry street was even more lively at night ... so much ENERGY! love it")
 
-# interns meet hoboken and smorgasburg 
+# interns meet hoboken and smorgasburg
 
 as great as exploring the city is, unprompted, though, it's almost guaranteed that I would never run into some of the people that I actually DID want to run into at some point - my fellow EY interns. As a result, my "one new area a day" challenge came in handy here, as I used a trick that my brother suggested: say I'm going to go do an event, and then say people are welcome to come "with." This makes it way less pressuring for people to come along. And plus, I was planning to explore solo anyway, so it was pretty genuine.
 
