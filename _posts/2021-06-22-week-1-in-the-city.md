@@ -2,7 +2,7 @@
 layout: post
 title: Week Uno in the City
 date: 2021-06-22T02:58:20.911Z
-header_feature_image: ../uploads/062021_smorgasburg_jeff_danielle.jpeg
+header_feature_image: ../uploads/061921_rooftop_view_nighttime_nyc.jpeg
 title_color: "#ffffff"
 comments: false
 tags:
