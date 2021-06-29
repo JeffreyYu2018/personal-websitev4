@@ -20,11 +20,11 @@ If pandemic life during covid was a stale cracker, then a summer in the city is 
 
 ![While everything is new, at least my breakfast is offering some semblance of normalcy ...](../uploads/061421_breakfast.jpeg "While everything is new, at least my breakfast is offering some semblance of normalcy ...")
 
-On one hand, New York provides some amazing opportunities and conveniences. In many senses, it's a microcosm of how I've found work at EY so far: overwhelming, stimulating, advancement. There's SO many people and resources that I'm excited to explore and dive in. At the same time, especially for the first week, it was overwhelming trying to create some structure for myself. 
+On one hand, New York provides some amazing opportunities and conveniences. In many senses, it's a microcosm of how I've found work at EY so far: overwhelming, stimulating, advancement. From a first impression, EY feels like a place where I can rocket my career from learnings and networking. There's SO many people and resources that I'm excited to explore and dive into, from badges to volunteering to professional groups. At the same time, especially for the first week, it was overwhelming trying to create some structure for myself. 
 
 ![Korean fried chicken sponsored by EY. The closest place back home is 300 miles away, while here its practically right next to my doorstep. That's NYC for ya!](../uploads/061421_kbbq_lunch.jpeg "Korean fried chicken sponsored by EY. The closest place back home is 300 miles away, while here its practically right next to my doorstep. That's NYC for ya!")
 
-If there's one thing I love most, though, it's the spontaneity. It's the ability to take an impromptu walk down the street next to my house while munching on some snap! mallow! pop! ice cream, and enjoy the day. Or pause and gasp in awe at the gorgeous weather blanketing the city like it was straight from a movie.
+If there's one thing I love most, though, it's the spontaneity. It's the ability to take an impromptu walk down the street next to my house while munching on some snap! mallow! pop! ice cream, and enjoy the day. Or CitiBike through the streets of Chelsea, pausing and gasping in awe at the gorgeous weather. 
 
 ![](../uploads/061421_ample_creamery_ice_cream.jpeg)
 
@@ -46,7 +46,7 @@ Anyone who knows me well knows how much I love to constantly be on the move (the
 
 I legitimately derived so much joy from stopping in Trader Joes and Uniqlo that I felt like I had ascended to some consumerist heaven.
 
-![Trader Joe's yogurt flavor heaven](../uploads/061621_tj_yogurt_heaven.jpeg "Trader Joe's yogurt flavor heaven")
+![Trader Joe's paradise of greek yogurt flavors](../uploads/061621_tj_yogurt_heaven.jpeg "Trader Joe's paradise of greek yogurt flavors")
 
 ![browsing TJs for two hours was an absolute BLAST](../uploads/061621_tj.jpeg "browsing TJs for two hours was an absolute BLAST")
 
@@ -64,7 +64,7 @@ It's liberating to move to a new city where no one knows you. You can reinvent y
 
 ![omurice, chicken katsu, and more.... SO OISHI](../uploads/061521_dinner_food.jpeg "omurice, chicken katsu, and more.... SO OISHI")
 
-having a friend in the city is also great for those late night, 4 am rooftop birthday parties that only they know about ;)
+having a friend in the city is also great for those late night, 4am rooftop birthday parties that only they know about ;) all those fashion changes helped me blend right into the smart casual atmosphere, and even though I didn't drink, I was able to match the vibe and fit right into the social dynamics. It was fun!
 
 ![just jaw. dropping. views.](../uploads/061921_rooftop_view_nighttime_nyc.jpeg "just jaw. dropping. views.")
 
@@ -90,7 +90,7 @@ Another thing that's been a complete overhaul of my life at home is nutrition. A
 
 Beyond nutrition and the gym, I started up another habit that I've been meaning to resume for a while: meditation! My buddy Zach from Taiwan helped me get a free subscription to a meditation app called Waking Up, and I've taken it upon myself to spend 10 minutes each morning before work to calm my mind. It's really done wonders for giving me that peace of mind and lack of insanity for even a small period during the day. While I must admit that I'm far from a meditation master, and my thoughts often cloud my mind and surface like flies from a jar, I do think learning to "sharpen my mind" is a skill I'll eventually develop through this consistent practice. 
 
-Not all habits are enjoyable. Waking up at 7 am each day for work to fit in breakfast and my morning routine is a drag. But seeing how much journaling and reading books changed my life, I'm optimistic these will be worth it. 
+Not all habits are enjoyable. Waking up at 7 am each day for work to fit in breakfast and my morning routine is a drag. Working 9-5 and sitting in 8-hour zoom calls (yes, you read that right) for training is a drag. But I'm trying to focus on the positive, and capitalizing on my time here in the city.
 
 # genuine spontaneity
 
@@ -110,7 +110,7 @@ when I say New Yorkers are interesting though ... I'm not kidding. I went out Sa
 
 ![mulberry street was even more lively at night ... so much ENERGY! love it](../uploads/061921_little_italy_night_mulberry_st.jpeg "mulberry street was even more lively at night ... so much ENERGY! love it")
 
-# organized fun
+# intern meetups: tours of hoboken and smorgasburg 
 
 as great as exploring the city is, unprompted, though, it's almost guaranteed that I would never run into some of the people that I actually DID want to run into at some point - my fellow EY interns. As a result, my "one new area a day" challenge came in handy here, as I used a trick that my brother suggested: say I'm going to go do an event, and then say people are welcome to come "with." This makes it way less pressuring for people to come along. And plus, I was planning to explore solo anyway, so it was pretty genuine.
 
@@ -156,26 +156,32 @@ If there's one thing I've noticed over the past few study abroad experiences, th
 
 Intern socials are one way to meet people, but one thing I've noticed is that despite there being HUNDREDS of interns in our class, very, very few in proportion are willing to meet up, for logistical or personal reasons. Like, our GroupMes have 300+ people, but there might only be ~50 people max who are even interested in socializing, and only 1-25 of them will actually go to events. It's kinda sad, but I haven't let it get to my psyche. Instead, I've tried to fill that void by joining some classes and hobbies, not just to meet new people, but also because they align really well with my goals to get out of my comfort zone and confront my fears. 
 
-This week, the big event was signing up for a comedy improv class on Monday. I've always been TERRIFIED of performing and making a fool of myself on stage. Sure, I've performed in recitals and stuff, but that type of performance is expected. Comedy improv though? You could easily make a fool of yourself. But that's exactly what I know I should do it, so I signed up for a Sunday class to push myself. When else will I get the opportunity to do something like this? And while I hesitated so, so much to sign up, I felt a deeper sense of pride and relief in the days afterwards, coming from knowing that I was living my life the way I wanted to. 
+This week, the big event was signing up for a comedy improv class on Monday. I've always been TERRIFIED of performing and making a fool of myself on stage. Sure, I've performed in recitals and stuff, but that type of performance is expected. Comedy improv though? You could easily make a fool of yourself. But that's exactly what I know I should do it, so I signed up for a Sunday class to push myself. When else will I get the opportunity to do something like this? And while I hesitated so, so much to sign up, I felt a deeper sense of pride and relief in the days afterwards, coming from knowing that I was living my life the way I wanted to. I also signed up for a co-ed beach volleyball league ... I've never been a beach person, but it seemed pretty fun and a cool way to explore a new part of the city (Riverside Park)
 
 # strangers and spice
 
+## breaking the ice
+
 I wasn't sure if I was going to include this section here, but I decided that it would be against my goals if I didn't. It's been my goal to open up and be honest to the people around me, and this is one step in that direction. 
 
-One thing I've always struggled with is learning to open myself up socially. 
+One thing I've always struggled with is learning to open myself up socially. I've always thought of it as "weird" to strike up conversations with people, or downright creepy. But the reality is that a lot of those thoughts are misguided, as long as you do things with respect and decency. In fact, learning to break the ice with strangers is oftentimes a way to brighten people's days. It's something that forces me not to just go through life on autopilot, but actively throw myself out of my comfort zone each and every day. 
 
-\[Being able to brighten people's days and not just go through life on autopilot, but actively throw myself out of my comfort zone each and every day.] 
+So, I've picked up the stranger of talking to strangers throughout the week, just complimenting people on their clothes. Something I've always wanted to work on about myself was not being a bystander, and this was.an extension of smile routine in Taiwan. Some experiences were minor, like complimenting a guy on his JCrew tshirt in Rite Aid. Others were interesting, like getting into a conversation with a guy on the subway about thrifting in NYC and his background coming from Germany. Some were shockingly impactful, like meeting the cafe bartender on Monday that I mentioned earlier, and learning where to get my haircut and how many New Yorkers went through the same uprooting process. Through it all, the old maxim of practice making perfect has held true. From being incredibly, incredibly awkward at the beginning, I've slowly become more desensitized to the awkwardness and more comfortable brightening other people's days. 
 
-So, I've picked up the stranger of talking to strangers throughout the week, just complimenting people on their clothes. Something I've always wanted to work on about myself was not being a bystander, and this was.an extension of smile routine in Taiwan. Some experiences were minor, like complimenting a guy on his JCrew tshirt in Rite Aid. Others were interesting, like getting into a conversation with a guy on the subway about thrifting in NYC and his background coming from Germany. Some were shockingly impactful, like meeting a cafe bartender named Andrew on Monday, and learning where to get my haircut and how many New Yorkers went through the same uprooting process.
+## catching fire
 
 As for spicing things up ... let's take about a little romance :p yessir, your boy is on the dating market. I've always been terrified of leaving myself vulnerable and putting myself out there. But after two years of self-development, meeting some incredible people abroad with healthy relationships, and some nudging from some important friends and family, I decided to take the plunge and put myself on all the major ones: Tinder, Coffee and Bagel, Bumble, and Hinge. Won't go into too much detail, but it's been an absolute rollercoaster. 
 
 I got very addicted to swiping at the beginning. After being at home for so long, being in the middle of nowhere, it was crazy to be with so many people my age around me. The even crazier thing? After wasting tons of time on Tinder with no results, I was getting SO many matches on Hinge. I attribute it to being able to set girls who are my demographic and type, but I found some of the matches I got were pretty good fits. As someone who's always struggled with self-esteem, that was a major validation boost.
 
-Of course, all of it came crashing down when I discovered the truth about the NY dating market, and how flakey it is. I didn't do a rigorous statistical analysis, but I would say in that first week, out of the 13 matches I got (which was a mind blowing number for someone who didn't expect any), 70% didn't respond to the first message, and the other 30% got a single message in before being completely ghosted. That was pretty soul crushing, putting so many exhausting hours swiping, making conversation, only for things to lead to dead ends left and right. Thursday in particular was a rough night, and I could feel the negative thoughts swirling in my head like ominous clouds. 
+Of course, all of it came crashing down when I discovered the truth about the NY dating market, and how flakey it is. I didn't do a rigorous statistical analysis, but I would say in that first week, out of the 13 matches I got (which was a mind blowing number for someone who didn't expect any), 70% didn't respond to the first message, and the other 30% got a single message in before being completely ghosted. That was pretty soul crushing, putting so many exhausting hours swiping, making conversation, only for things to lead to dead ends left and right. Thursday in particular was a rough night, and I could feel sour thoughts swirling in my head like ominous clouds. 
 
-In the depths of these disappointments, I started to embrace an alternative mindset at the end of the week though: nonneediness. I think it's so easy to get sucked into the dating game and become needy, but the truly healthy way of dealing with this initial stage of searching is nonneediness, or being able to walk away. I wouldn't have had the courage to do that in the past, but after developing a circle of supportive friends, opening up, living a better lifestyle, shedding some toxic conceptions about masculinity, and actually getting matches, I'd say I have the healthiest mindset about dating I've had in forever. I just hope I can sustain it. 
+In the depths of these disappointments, I started to embrace an alternative mindset at the end of the week though: nonneediness. I think it's so easy to get sucked into the dating game and become needy, but the truly healthy way of dealing with this initial stage of searching is nonneediness, or being able to walk away. I wouldn't have had the courage to do that in the past, but after developing a circle of supportive friends, opening up, living a better lifestyle, shedding some toxic conceptions about masculinity, and actually getting matches, I'd say I have the healthiest mindset about dating I've had in forever. I just hope I can sustain it. Dating is a numbers game, and the moment I give up is the moment I stop progressing. Resiliency, the ability to bounce back from failure, is the path to success. It's all in my head.
 
-# in sum
+I'd say the most eye-opening moment I had was on Saturday night, when I told the girl at the dessert cafe she was cute and walked out. It might seem so silly, so stupid, but for me, it was a HUGE step forward. She smiled, flattered, and I walked out into the night. No creepy stares. No creepy police. Just ending the situation with a net positive, brightening both of ours days.
 
-If there's one thing I learned early on in the week that's stuck with me to this point, it's that all of my valuable experiences have happened OUTSIDE my apartment, and as much as I hate things that push me outside of my comfort zone, I know that doing these types of activities will help me grow so much, and be the most memorable activities from this summer.
+The second eye-opening moment moment? Getting a number from dating apps on Sunday night. Another first step, baby step, in the right direction.
+
+# looking forward
+
+I haven't had, like, ANY time at all to reflect and re-evaluate if my experience is up to my expectations. But if there's one thing I learned early on in the week that's stuck with me to this point, it's that all of my valuable experiences have happened OUTSIDE my apartment, and as much as I hate things that push me outside of my comfort zone, I know that doing these types of activities will help me grow so much, and be the most memorable activities from this summer.
