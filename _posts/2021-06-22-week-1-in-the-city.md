@@ -48,7 +48,7 @@ I legitimately derived so much joy from stopping in Trader Joes and Uniqlo that 
 
 ![Trader Joe's yogurt flavor heaven](../uploads/061621_tj_yogurt_heaven.jpeg "Trader Joe's yogurt flavor heaven")
 
-![bigger TJ's are DEFINITELY better](../uploads/061621_tj.jpeg "bigger TJ's are DEFINITELY better")
+![browsing TJs for two hours was an absolute BLAST](../uploads/061621_tj.jpeg "browsing TJs for two hours was an absolute BLAST")
 
 ![you'll never find someone who geeks out about uniqlo more than me](../uploads/061921_uniqlo_interior.jpeg "you'll never find someone who geeks out about uniqlo more than me")
 
@@ -58,7 +58,7 @@ at the same time, sometimes you gotta recharge, and stopping in a small shaved i
 
 # socially: from the old times
 
-It's liberating to move to a new city where no one knows you. You can reinvent yourself, shed off old baggage. But it's also terrifying and incredibly easy to become lonely, a migrant. But I'm lucky to have a few buddies from my past, who are there to ease me into my new life.
+It's liberating to move to a new city where no one knows you. You can reinvent yourself, shed off old baggage. But it's also terrifying and incredibly easy to become lonely, a migrant. But I'm lucky to have a few buddies from my past, who are there to ease me into my new life. And also there to support me in my self-improvement goals, my adventurous lifestyle, and my terrible jokes and effacing sense of humor ;) ... okay, maybe not that last one.
 
 ![name a better tuesday night than food with great company (meg and her bf)](../uploads/061521_japanese_dinner_with_meg_and_justin.jpeg "name a better tuesday night than food with great company (meg and her bf)")
 
@@ -68,7 +68,11 @@ having a friend in the city is also great for those late night, 4 am rooftop bir
 
 ![just jaw. dropping. views.](../uploads/061921_rooftop_view_nighttime_nyc.jpeg "just jaw. dropping. views.")
 
-# routine and habit
+# 42 habits to success
+
+My buddy Kevin sent me a video while I was in my transitionary period to New York about habits. Apparently, there are 32 habits which can change your life. I had picked up S tier ones without even knowing - including socializing and journaling - and taking this as affirmation, I made it my goal to embrace routine and habit building as a means of self improvement this summer. 
+
+<div class="video-box"><iframe width="560" height="315" src="https://www.youtube.com/embed/GriR73kSvPY?rel=0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe></div>
 
 There are some things which I can never give up wherever I travel, and health is one of them. I had researched gyms extensively before coming to the city, and was originally going to go for the cheapest option. (stingy saving habits die hard) However, I must've gotten too accustomed to having a home gym in my garage all year, because that 10 minute walk felt like a lifetime. Shifting from living at home the entire pandemic to walking everywhere in an urban city still left a lot to be desired.
 
@@ -82,11 +86,11 @@ It's taken a while to adjust and coordinate with Jake (my personal trainer who's
 
 Another thing that's been a complete overhaul of my life at home is nutrition. As nice as my apartment is, it's still pretty cramped, and the lack of space and sink means weekly meal prep is a logistical nightmare. Especially because I've been trying to watch my macros. As a result, I decided to take the financial hit and buy pre-made meals from ICON Meals after researching a lot of different companies. It's really not that insane to be honest - shipping is free, the meals are freezable, and the pricing is slightly fairer than what Yale Dining would charge. What I really like about ICON is that I can easily customize the portion sizes so I match my macros exactly. And, after the first batch arrived on Tuesday,
 
-![The 14 ICON meals came packaged in dry ice ... how dope is that?!](../uploads/061521_premade_icon_meals_box.jpeg "The 14 ICON meals came packaged in dry ice ... how dope is that?!")
+![The 14 ICON meals came vacuum sealed and packaged in dry ice ... how dope is that?!](../uploads/061521_premade_icon_meals_box.jpeg "The 14 ICON meals came vacuum sealed and packaged in dry ice ... how dope is that?!")
 
 Beyond nutrition and the gym, I started up another habit that I've been meaning to resume for a while: meditation! My buddy Zach from Taiwan helped me get a free subscription to a meditation app called Waking Up, and I've taken it upon myself to spend 10 minutes each morning before work to calm my mind. It's really done wonders for giving me that peace of mind and lack of insanity for even a small period during the day. While I must admit that I'm far from a meditation master, and my thoughts often cloud my mind and surface like flies from a jar, I do think learning to "sharpen my mind" is a skill I'll eventually develop through this consistent practice. 
 
-Not all habits are enjoyable. Waking up at 7 am each day for work to fit in breakfast and my morning routine is a drag. 
+Not all habits are enjoyable. Waking up at 7 am each day for work to fit in breakfast and my morning routine is a drag. But seeing how much journaling and reading books changed my life, I'm optimistic these will be worth it. 
 
 # genuine spontaneity
 
@@ -162,13 +166,15 @@ One thing I've always struggled with is learning to open myself up socially.
 
 \[Being able to brighten people's days and not just go through life on autopilot, but actively throw myself out of my comfort zone each and every day.] 
 
-\[talking to strangers habit - throughout the week, just complimenting people on their clothes and learning to polarize. Something I've always wanted to work on about myself was not being a bystander, and this was.an extension of smile routine in Taiwan. Some experiences were minor, like complimenting a guy on his JCrew tshirt in Rite Aid. Crazy experiences including meeting Andrew in the cafe on Monday, and learning where to get my haircut and how New Yorkers are genuinely nice people if you get to know them.]
+So, I've picked up the stranger of talking to strangers throughout the week, just complimenting people on their clothes. Something I've always wanted to work on about myself was not being a bystander, and this was.an extension of smile routine in Taiwan. Some experiences were minor, like complimenting a guy on his JCrew tshirt in Rite Aid. Others were interesting, like getting into a conversation with a guy on the subway about thrifting in NYC and his background coming from Germany. Some were shockingly impactful, like meeting a cafe bartender named Andrew on Monday, and learning where to get my haircut and how many New Yorkers went through the same uprooting process.
 
 As for spicing things up ... let's take about a little romance :p yessir, your boy is on the dating market. I've always been terrified of leaving myself vulnerable and putting myself out there. But after two years of self-development, meeting some incredible people abroad with healthy relationships, and some nudging from some important friends and family, I decided to take the plunge and put myself on all the major ones: Tinder, Coffee and Bagel, Bumble, and Hinge. Won't go into too much detail, but it's been an absolute rollercoaster. 
 
 I got very addicted to swiping at the beginning. After being at home for so long, being in the middle of nowhere, it was crazy to be with so many people my age around me. The even crazier thing? After wasting tons of time on Tinder with no results, I was getting SO many matches on Hinge. I attribute it to being able to set girls who are my demographic and type, but I found some of the matches I got were pretty good fits. As someone who's always struggled with self-esteem, that was a major validation boost.
 
-Of course, all of it came crashing down when I discovered the truth about the NY dating market, and how flakey it is. I didn't do a rigorous statistical analysis, but I would say in that first week, out of the 13 matches I got (which was a mind blowing number for someone who didn't expect any), 70% didn't respond to the first message, and the other 30% got a single message in before being completely ghosted. That was pretty soul crushing, putting so many hours swiping only for things to lead to a dead end. Thursday in particular was a rough night, and I could feel the negative thoughts swirling in my head like ominous clouds. 
+Of course, all of it came crashing down when I discovered the truth about the NY dating market, and how flakey it is. I didn't do a rigorous statistical analysis, but I would say in that first week, out of the 13 matches I got (which was a mind blowing number for someone who didn't expect any), 70% didn't respond to the first message, and the other 30% got a single message in before being completely ghosted. That was pretty soul crushing, putting so many exhausting hours swiping, making conversation, only for things to lead to dead ends left and right. Thursday in particular was a rough night, and I could feel the negative thoughts swirling in my head like ominous clouds. 
+
+In the depths of these disappointments, I started to embrace an alternative mindset at the end of the week though: nonneediness. I think it's so easy to get sucked into the dating game and become needy, but the truly healthy way of dealing with this initial stage of searching is nonneediness, or being able to walk away. I wouldn't have had the courage to do that in the past, but after developing a circle of supportive friends, opening up, living a better lifestyle, shedding some toxic conceptions about masculinity, and actually getting matches, I'd say I have the healthiest mindset about dating I've had in forever. I just hope I can sustain it. 
 
 # in sum
 
