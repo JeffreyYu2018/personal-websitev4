@@ -39,4 +39,40 @@ bet you liked that alliteration huh? ;)
 
 ![blogging in a 24h cafe ... buying water saves a lot of money when going to these places](../uploads/062421_blogging_24_hr_cafe.jpeg)
 
+\[or exploring might look more organized, like when i traveled halfway across the city to play on red clay tennis courts. i would've never explored this area before ... its more residential for sure, but its nice to see different parts of manhattan i would have never went to.]
+
+![](../uploads/062521_sutton_east_tennis_courts_neighborhood.jpeg)
+
+\[this guy named Ming who graduated from Harvard reached out to me on FB, and while i only posted once in that group chat, i was surprised, bc i wasn't expecting much from it. but i was so so glad he did, because apparently we already had a really good mutual friend in one of my old bboy buddies, and i ended up having the time of my life that friday evening.]
+
+\[i didn't find out until that morning that the courts weren't just normal tennis courts ... they were INDOOR RED CLAY courts. yes, you read that right, real, sliding, dirty, red clay.]
+
+![](../uploads/062521_sutton_east_bubble.jpeg)
+
+\[best part? the courts dont' require any additional fee and are FREE to the public if you have a permit ... i thought a place as elite as this would cost an additional $70/hr, but the permit was only $100 for the entire season, so its a STEAL.]
+
+![tight match ](../uploads/062521_red_clay_ming_tennis_match.jpeg)
+
+\[not to mention, the match itself was a mental slugfest. we went the distance for 2 hours, with me saving like 4 match points to clinch it 6-2 4-6 7-5. i was slipping and sliding, panting hard, hitting groundies ... it was an absolute blast, and i felt like a kid in a candy store. i was sooo happy and ming was a great hitting partner. in fact, he's probably one of the few guys who i've met who shares the same passion for not just playing tennis, but also WATCHING it super closely. it's probably too early to tell, but we might even go to the us open together, my first time going with a friend!! ain't that crazy to have finally met a fellow tennis affectionado.]
+
+\[i was so tired that afterwards, despite wanting to go to an intern meetup at a bar, i decided to take it easy and sleep. it's important to pace myself. im learning how to organize daytime activities now, but when i turn 21 in the fall, ill learn nighttime activities as well.]
+
+\[but in true new york style, the marathon wasn't over. on saturday, meg had invited me to governors island. so a .little after noon, i headed to meet her on the ferry there, and we were off.]
+
+![view of the nyc skyline from the ferry](../uploads/062621_gov_island_ferry_view.jpeg)
+
+![welcome to governor's island!](../uploads/062621_gov_island_entrance.jpeg)
+
+\[we ended up walking around and just hanging for a couple of hours. there was a cool food area with a ton of people, and, in the spirit of trying something new, I got some ethiopan food which I had never tried before (it was alright but i was glad i tried it out)]
+
+![people out and about, in a normal life, on a gorgeous day](../uploads/062621_gov_island_lunch_area.jpeg)
+
+![gov island ethiopian lunch](../uploads/062621_gov_island_ethiopan_lunch.jpeg)
+
+\[but one of my favorite parts? sitting in the grass with meg on a picnic blanket, just people watching, chilling, staring at the sky in silence, taking it easy. an amazing change of pace from the frenetic lifestyle of the city.]
+
+![picnic blanket, watermelon lemonade, ethiopian food, and a chill day](../uploads/062621_gov_island_picnic_grass.jpeg)
+
+![staring at the sky and tree branches waving in the wind, like it was out of a movie](../uploads/062621_gov_island_sky.jpeg)
+
 \[romance - propelled by dating app successes ... its a real drag getting dozens and dozens of ghosts, but pushing through, keeping my head up. u miss 100% of the shots u don't take, even if the chances are low. it's all about not taking these ghosts too seriously or personally ... it's hard, but its something i have to keep reminding myself of]
