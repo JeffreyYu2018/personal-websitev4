@@ -103,6 +103,42 @@ bet you liked that alliteration huh? ;)
 
 \[if there's a theme of the week, its being so busy that i didn't get any work done. that includes errands, blogs, online classes ... all of the stuff that kept me occupied at home. but honestly, i can't complain. i feel like im living way more at the moment]
 
+\[normally sunday would be my days off to do these types of errands and recharge from being social, but this week was different, in that i spent most of sunday afternoon hanging out with Chris, an old YUCG president and buddy I hadn't talked to in a long while. that's been one of my minor goals this summer: catch up with old friends from university since so many of them are in the city! for this trip in particular, we went to the south street seaport, an area popping with bars, museums, shops, and other cool things, and a place i had always wanted to visit and a place that chris had never been to before.]
 
+![the South Street Seaport district](../uploads/062721_south_street_seaport.jpeg)
 
-\[romance - propelled by dating app successes ... its a real drag getting dozens and dozens of ghosts, but pushing through, keeping my head up. u miss 100% of the shots u don't take, even if the chances are low. it's all about not taking these ghosts too seriously or personally ... it's hard, but its something i have to keep reminding myself of]
+\[i went in with no plan, but i didn't need to ... there were so many things to do]
+
+\[from getting FREE admission to a ship museum...]
+
+![saw this ship ... didn't know we would be getting on it moments later](../uploads/062721_south_street_seaport_ship.jpeg)
+
+\[and exploring the hull and decks like a true sailor...]
+
+![ship hull](../uploads/062721_south_street_seaport_ship_hull.jpeg)
+
+![ship wheel ... glad i wasn't steering this thing](../uploads/062721_south_street_seaport_wheel.jpeg)
+
+\[to walking around to see all the different bars]
+
+![what a vibe](../uploads/062721_south_street_seaport_bars.jpeg)
+
+\[to checking out all the stores in the dope mall]
+
+![seaport mall](../uploads/062721_south_street_seaport_mall.jpeg)
+
+\[to just soaking in the view of the skyline]
+
+![those views ...](../uploads/062721_south_street_seaport_ocean_views.jpeg)
+
+\[and just chatting about life, catching up, hearing about future goals, it was just a great way to spend a sunday afternoon in the city.]
+
+![Chris and Jeff (rocking some of those new Uniqlo and Zara clothes too :o)](../uploads/062721_south_street_seaport_chris_jeff.jpeg)
+
+\[its only in my brief moments of downtime i have time to do all of the little things needed to keep my life functioning ... cooking. laundry, groceries, errands, cleaning shoes, etc. but im glad that my busy-ness pushes into that time, because it means i'm really trying to make the most of my time here. sacrificing sleep for living a better, more stimulating life.]
+
+\[some type of heartfelt and thoughtful conclusion here]
+
+P.S.
+
+\[as for romance - propelled by dating app successes ... its a real drag getting dozens and dozens of ghosts, but pushing through, keeping my head up. u miss 100% of the shots u don't take, even if the chances are low. it's all about not taking these ghosts too seriously or personally ... it's hard, but its something i have to keep reminding myself of. also some first dates this week??? will keep u updated xoxo]
