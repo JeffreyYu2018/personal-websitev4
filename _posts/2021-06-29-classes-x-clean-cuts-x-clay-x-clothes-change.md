@@ -69,10 +69,40 @@ bet you liked that alliteration huh? ;)
 
 ![gov island ethiopian lunch](../uploads/062621_gov_island_ethiopan_lunch.jpeg)
 
-\[but one of my favorite parts? sitting in the grass with meg on a picnic blanket, just people watching, chilling, staring at the sky in silence, taking it easy. an amazing change of pace from the frenetic lifestyle of the city.]
+\[but one of my favorite parts? sitting in the grass with meg on a picnic blanket, just people watching, chilling, staring at the sky in silence, taking it easy. there was even a harp player sitting on a nearby bench playing a few notes, adding to the ambience. an amazing change of pace from the frenetic lifestyle of the city.]
 
 ![picnic blanket, watermelon lemonade, ethiopian food, and a chill day](../uploads/062621_gov_island_picnic_grass.jpeg)
 
 ![staring at the sky and tree branches waving in the wind, like it was out of a movie](../uploads/062621_gov_island_sky.jpeg)
+
+\[course, it was disrupted by a sudden burst of rain that hit the island and caused everyone to go scampering for cover under the giant arch, but hey, it was so nice while it lasted]
+
+![rip ](../uploads/062621_gov_island_rain.jpeg)
+
+\[it was a great time visiting someplace new with a great friend and good company]
+
+![jeff + meg, taiwan power squad](../uploads/062621_gov_island_meg_jeff.jpeg)
+
+\[the crazy thing about new york is how much stuff u can do to add to a previously basic plan. i thought gov island would be it, but we both decided to say fuck it, let's get some food and dessert. so we stopped by a place called golden diner which was apparently really well-renowned, and got some food. walking around gov island does a number for your appetite.]
+
+![for me: breakfast sandwich on milk bun (taiwanese x western fusion), for meg, chicken katsu sandwich (japanese x western fusion) yum!!](../uploads/062621_golden_diner_meg_jeff_food.jpeg)
+
+\[we chatted a lot, had fun talking, but overall, i think it was the desserts that stole the show]
+
+![on left: thai tea tres leches cake. on right: green tea coffee cake](../uploads/062621_meg_jeff_golden_diner_desserts.jpeg)
+
+\[that green tea coffee cake was godly. the symphony of flavors is indescribable ... i could go full anthony bourdain on that tiny piece of heaven.]
+
+\[you know, i thought that would be the end of my day, and i felt ready to go home, but in a moment of spontaneity, i decided to go shopping for some clothes in soho. i had been meaning to get all my basic shirts colors from uniqlo for a while, but what i didn't expect was a short "window shipping" moment in zara to turn into a full two hour shopping fest.]
+
+![look at all the fashionable shirts!!](../uploads/062621_zara_shirts.jpeg)
+
+![me copping a new shirt](../uploads/062621_zara_jeff_shopping.jpeg)
+
+\[i had been searching for summer shirts in all types of stores for a long while .. the summery, fun ones ... to no avail. never did i think that zara would literally have EXACTLY what i was looking for. i finally feel like ive filled a hole in my wardrobe and can dress now for the heat.]
+
+\[if there's a theme of the week, its being so busy that i didn't get any work done. that includes errands, blogs, online classes ... all of the stuff that kept me occupied at home. but honestly, i can't complain. i feel like im living way more at the moment]
+
+
 
 \[romance - propelled by dating app successes ... its a real drag getting dozens and dozens of ghosts, but pushing through, keeping my head up. u miss 100% of the shots u don't take, even if the chances are low. it's all about not taking these ghosts too seriously or personally ... it's hard, but its something i have to keep reminding myself of]
