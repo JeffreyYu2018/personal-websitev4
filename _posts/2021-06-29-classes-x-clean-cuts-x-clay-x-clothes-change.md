@@ -23,7 +23,7 @@ bet you liked that alliteration huh? ;)
 
 ![](../uploads/062221_hip_hop_dance.jpg)
 
-\[work - started off doing a lot of software dev, which honestly wasn't what I was looking for with this internship. however, i talked with my senior, and he said that he was willing to make it more business and strategy and client-facing, which i'm happy about. also have been trying to ask more questions at work]
+\[work - started off doing a lot of software dev, which honestly wasn't what I was looking for with this internship. however, i talked with my senior, and he said that he was willing to make it more business and strategy and client-facing, which i'm happy about. also have been trying to ask more questions at work. but other than that, work is kinda exhausting, just debugging all day]
 
 \[kind of balancing the home life by also eating pre-cooked meals - pre-prepared ones, but trying to change it up each week]
 
@@ -33,4 +33,10 @@ bet you liked that alliteration huh? ;)
 
 ![fresh cut! took me a while to get used to it, but i'm really diggin it now](../uploads/062321_new_haircut.jpeg)
 
-\[weekday evenings I'm soooo busy]
+\[weekday evenings I'm soooo busy. sometimes after working out and finishing errands and eating dinner, im not done until like 9 pm. but on those nights i push myself to go out, like on Thursday, when at 9 pm i decided to take a train up to midtown in a 24h cafe and chip away at my blogs. listened to radwimps and romanticized my experience]
+
+![NY is the city that never sleeps ... where else could i find a place like this open this late at night?](../uploads/062421_midtown_nighttime_blogging.jpeg)
+
+![blogging in a 24h cafe ... buying water saves a lot of money when going to these places](../uploads/062421_blogging_24_hr_cafe.jpeg)
+
+\[romance - propelled by dating app successes ... its a real drag getting dozens and dozens of ghosts, but pushing through, keeping my head up. u miss 100% of the shots u don't take, even if the chances are low. it's all about not taking these ghosts too seriously or personally ... it's hard, but its something i have to keep reminding myself of]
