@@ -9,33 +9,37 @@ tags:
 ---
 bet you liked that alliteration huh? ;)
 
-\[exploring greenwich park, getting out of the house, DON'T mention the cold approach I did] 
+One of the most memorable moments from this week (out of the many that there were) was exploring Greenwich Park at the beginning of the week. Such a simple gesture to get out of the house, but walking around a new area reminded me of that initial magic that struck me those first few days, of being a stranger in a foreign land. 
 
 ![](../uploads/062121_greenwich_park.jpeg)
 
+Especially those little joys of finding quaint neighborhoods to stroll and reflect in.
+
 ![[something about this being a quaint place]](../uploads/062121_greenwich_village.jpeg "[something about this being a quaint place]")
 
-[going along the theme of organized spontaneity ... hip hop dance class was one of the best things I've joined so far. always wanted to learn how to dance better, and this summer being the summer of yes, i thought of pushing myself out of my comfort zone and learning, especially because its included in my gym membership![
+But while I love those spontaneous outings, recurring socializing was more the theme of this week. Take my hip hop dance class this week as an example. It's one of the best things I've joined so far while in the city. I've always wanted to learn how to dance better, and this summer being the summer of yes, i thought of pushing myself out of my comfort zone and learning something new. Helps that the class cost is included in my gym membership!
 
-[i've learned a lot about positive frames while here - i knew i was getting out of my comfort zone and have two left feet, but by going in with a smile no matter how goofy I looked, laughing at my badness and embracing it, then this positive energy reverberates through the room. its all about attitude. whenever facing something negative, facing it with humor and laughter goes a long way\
+I've learned a lot about positive frames while here so far. I knew I was getting out of my comfort zone by joining the class, as I have two left feet. But by going in with a smile, and laughing at my badness and embracing it, I could feel my positive energy reverberating through the room. It's all about attitude. Whenever facing something negative, I've learned that facing it with humor and laughter goes a long way.
 
-\[luckily, the people in the dance class are SO good and ALSO nonjudgmental - my mind was blown]
+Luckily, the people in the dance class were not only SO good, but they were ALSO nonjudgmental. So there wasn't much negative energy emanating from outside. My mind was blown to have found a group of such cool people.
 
-![](../uploads/062221_hip_hop_dance.jpg)
+![If you look closely enough, you might recognize the cameraman for the recording of the instructional video.](../uploads/062221_hip_hop_dance.jpg "If you look closely enough, you might recognize the cameraman for the recording of the instructional video.")
 
-\[work - started off doing a lot of software dev, which honestly wasn't what I was looking for with this internship. however, i talked with my senior, and he said that he was willing to make it more business and strategy and client-facing, which i'm happy about. also have been trying to ask more questions at work. but other than that, work is kinda exhausting, just debugging all day]
+If there one thing that didn't start off necessarily on the right foot though, it was work. It was a lot of software development at the beginning, which honestly wasn't what I was looking for with this internship. That's why I left my SWEI role at PlayStation in the first place - to escape the debugging holes and walls of errors! However, I talked with my senior about my goals, and he said that he was willing to help make my internship more business and strategy and client-facing, which I'm happy about. In this sense, the EY work environment has been pretty supportive so far. I've been trying to ask more questions at work, and schedule meetings with more PPMDDs (high level executives).
 
-\[kind of balancing the home life by also eating pre-cooked meals - pre-prepared ones, but trying to change it up each week]
+Nonetheless, work is work, and its still pretty exhausting to debug all day. The new client-facing stuff doesn't begin until after the company holiday. It's been a balance to establish a routine at home, like eating pre-cooked meals on a schedule for my nutrition plan, while changing things up each week to keep it interesting, like rotating the recipes. Monotony is the killer of joy.
 
-![[description of meals here]](../uploads/062321_preprepared_meals.jpeg)
+![Salmon, cod, chicken, all measured to perfect portion sizes](../uploads/062321_preprepared_meals.jpeg "Salmon, cod, chicken, all measured to perfect portion sizes")
 
-\[Also thought since it was the summer, I could say screw it, let's get a new haircut too! So I followed up on my lead from last weekend and went to see AJ at Village Cuts on a Wed evening as specifically recommended by Andrew, and yeah, he was WAY more open, hospitable, and cool than my other barber. it's funny how I met him - as i stepped up the stairs, i had to sidestep two guys on the stairs smoking. one of them even smiled at me. after stepping into the cuts place, i asked for aj, only to find out that one of the guys who smiled at me on the stairs was him!  I got into a conversation with him about his family and how he was from Kyrgyzstan, and apparently how we were both into building our own PCs! also talked about cool food spots in the city, and his life ever since moving here. super, super cool guy, also, he took almost a full hour to my haircut and was really methodical about it, taking his time, being precise. so my haircut was way better, and im definitely gonna come back]
+In the spirit of change, since it was the summer, I said screw it and got a new haircut too this week! I followed up on my lead from last weekend and went to see AJ at Village Cuts on a Wednesday evening as specifically recommended by Andrew. Glad I did, since he was WAY more open, hospitable, and cool than my other barber. 
 
-![fresh cut! took me a while to get used to it, but i'm really diggin it now](../uploads/062321_new_haircut.jpeg)
+It's funny how I met him - as I stepped up the stairs, I had to sidestep two guys on the stairs smoking, with one of them smiling at me and directing me to the store entrance. After stepping inside, I asked for AJ, only to find out that the guys who smiled at me on the stairs was him! He finished his cig and we got started, stilting into a more organic conversation. We talked about his family and how he was from Kyrgyzstan, and also how we were both into building our own PCs! We also talked about cool food spots in the city, and his life ever since moving here. Super, super cool guy, and also, he took almost a full hour to methodically do my haircut. I really respected that he took his time, being precise, and it reflected in my haircut, which was CLEAN. Definitely going to come back. 
 
-\[weekday evenings I'm soooo busy. sometimes after working out and finishing errands and eating dinner, im not done until like 9 pm. but on those nights i push myself to go out, like on Thursday, when at 9 pm i decided to take a train up to midtown in a 24h cafe and chip away at my blogs. listened to radwimps and romanticized my experience]
+![fresh cut! took me a while to get used to it, but i'm really diggin it now](../uploads/062321_new_haircut.jpeg "fresh cut! took me a while to get used to it, but i'm really diggin it now")
 
-![NY is the city that never sleeps ... where else could i find a place like this open this late at night?](../uploads/062421_midtown_nighttime_blogging.jpeg)
+It was surprisingly tough to fit something as trivial as a haircut into my schedule though. Weekday evenings, I'm soooo busy. Sometimes after working out and finishing errands and eating dinner, I'm not done until like 9 pm. Yet, on those nights, I still push myself to go out, like on Thursday, when at 9 pm i decided to take a train up to midtown in a 24h cafe and chip away at my blogs. It was a nostalgia trip, listened to radwimps and romanticized my experience here in the Big Apple.
+
+![NY, the city that never sleeps.](../uploads/062421_midtown_nighttime_blogging.jpeg "NY, the city that never sleeps.")
 
 ![blogging in a 24h cafe ... buying water saves a lot of money when going to these places](../uploads/062421_blogging_24_hr_cafe.jpeg)
 
