@@ -126,3 +126,45 @@ After that we wandered around Chelsea market and grabbed some brunch with Mom's 
 Then finally walked mom to the bus stop and dropped her off.
 
 I came home, sweaty, tired, wanting to chill, but in the spirit of the Fourth of July, I got off my ass (after cooking for the week) and headed to my next destination: Coney Island.
+
+I spent the rest of the day with Ram, one of the interns from our EY cohort, which was fun. We were shootin the shit, walking around, hanging out ... the works.
+
+![some quick bites](../uploads/070421_coney_island_food_stall.jpeg "some quick bites")
+
+I'm finally glad to have befriended some thrill seekers in this stage of my life, because I got to do something I had been itching to do for months ... ride a legit rollercoaster!
+
+![went on "the cyclone" twice!](../uploads/070421_coney_island_cyclone.jpeg "went on \"the cyclone\" twice!")
+
+![ignore that watermark ;) we're just edgy like that](../uploads/070421_coney_island_rollercoaster.jpeg "ignore that watermark ;) we're just edgy like that")
+
+The atmosphere was so festive ... it literally felt like a state fair.
+
+![](../uploads/070421_coney_island_state_fair.jpeg)
+
+Even got to eat at some iconic locations, like Nathan's, home of the famous hot dog eating contest!
+
+![](../uploads/070421_coney_island_nathans.jpeg)
+
+![](../uploads/070421_nathans_meal.jpeg)
+
+It was **absolutely** packed overall, though, and some of the lines were crazy. 
+
+![](../uploads/070421_coney_island_boardwalk.jpeg)
+
+![](../uploads/070421_coney_island_beach.jpeg)
+
+But if anything, this only added to the festivity, and reminded me that New York had finally started ton return to its chaotic normal.
+
+![](../uploads/070421_coney_island_sunset.jpeg)
+
+![](../uploads/070421_coney_island_ferris_wheel.jpeg)
+
+What better way to cap off an explosive week than with a bang ... Ram and I were so lucky, because we managed to get on the Ferris Wheel (the Wonder Wheel) the MOMENT that the fireworks started at 10 pm. As a result, we got a view of all of the fireworks across the city ... it was visually spectacular. 
+
+![](../uploads/070421_coney_island_ram_and_jeff.jpeg)
+
+And what better way to end the celebrations with a staple, funnel cake?
+
+![](../uploads/070421_coney_island_funnel_cake.jpeg)
+
+Fireworks, Ferris wheels, funnel cake, fun… rollercoasters, festivities, fun… what a way to cap off a heated week.
