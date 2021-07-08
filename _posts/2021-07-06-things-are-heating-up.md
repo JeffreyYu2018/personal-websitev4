@@ -26,7 +26,7 @@ I could only take so much gorgeousness though before needing to escape to some a
 
 ![a cute, beautiful scene at night](../uploads/062821_italian_dessert_shop_ext_night.jpeg "a cute, beautiful scene at night")
 
-Heat was the theme this week. Things got even spicier when I headed to my hip hop dance class on Tuesday. This week, we learned a new clean set of moves. Feeling more comfortable, I actually started getting the hang of it. It helped that no one else had done this choreography before, but also, practice makes perfect, and Russell (the teacher) was great at teaching the moves at a slower pace. As always, it was so dang fun, and got me buzzed afterwards. 
+Heat was the theme this week. Things got even spicier when I headed to my hip hop dance class on Tuesday. This week, we learned a new clean set of moves. Feeling more comfortable, I actually started getting the hang of it. It helped that no one else had done this choreography before, but also, practice makes perfect, and Russell (the teacher) was great at teaching the moves at a slower pace. As always, it was so dang fun, and got me buzzed afterwards on natural endorphins.
 
 !["get that money money money" will be burned in my ears forever](../uploads/062921_hip_hop_dance.jpeg "\"get that money money money\" will be burned in my ears forever")
 
@@ -96,6 +96,8 @@ https://static1.squarespace.com/static/54288085e4b0461906627747/t/60de24934e678d
 ![](../uploads/070321_michelin_moms_main.jpeg)
 
 ![](../uploads/070321_michelin_jeffs_lobster_main.jpeg)
+
+![](../uploads/070321_michelin_dessert_other.jpeg)
 
 ![](../uploads/070321_michelin_jeff_eating_lobster.jpeg)
 
