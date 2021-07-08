@@ -71,7 +71,13 @@ Not to mention, the office is just damn aesthetic. Photo dump incoming.
 
 ![best detour I could have taken](../uploads/070221_oculus.jpeg "best detour I could have taken")
 
-[That was pretty much the end of my self-exploration though, as I spent the rest of the week with other people. My mom was in town since Thursday, so after a busy work day on Friday, we headed for some touristy sites. Mom loves flowers, so she wanted to visit the New York Botanical Garden. Personally, I'm not a big fan, so we mutually agreed to split up, with her walking around without me as baggage while I headed to a cafe to catch up on some work, including blogs. It was an hour commute, but it was great to get out of the Manhattan area.
+That was pretty much the end of my self-exploration though, as I spent the rest of the week with other people. My mom was in town since Thursday, so after a busy work day on Friday, we headed for some touristy sites. Mom loves flowers, so she wanted to visit the New York Botanical Garden. It was an hour commute, but it was great to get out of the Manhattan area on a chilly rainy day.
+
+![](../uploads/070321_jeff_botanical_garden.jpeg)
+
+![](../uploads/070321_jeff_mom_botanical_garden_selfie.jpeg)
+
+Personally, I'm not a big fan, so we mutually agreed to split up, with her walking around without me as baggage while I headed to a cafe to catch up on some work, including blogs. 
 
 ![Breakfast blogs in the Bronx](../uploads/070321_blogging_in_bronx.jpeg "Breakfast blogs in the Bronx")
 
@@ -100,3 +106,23 @@ If there was a dish that stole the show, though, by and far, it would be the "Ar
 It was a rare boogie way to wrap up my Saturday.
 
 ![](../uploads/070321_michelin_jeff_mom.jpeg)
+
+That was far from the end of the weekend chaos though. If anything, Sunday, the 4th of July was when the event sparks started flying (pun intended - trying to tie this into the theme of the post HAHA). No, not romantically, if that's what you're thinking ... I mean fireworks! 
+
+It was an INSANELY busy day, but the beginning of the day started calm enough. Mom and I visited Little Island right next to my house.
+
+![LOVE the architecture!](../uploads/070421_little_island.jpeg "LOVE the architecture!")
+
+![](../uploads/070421_little_island_jeff.jpeg)
+
+![](../uploads/070421_little_island_jeff_island.jpeg)
+
+![](../uploads/070421_little_island_view.jpeg)
+
+After that we wandered around Chelsea market and grabbed some brunch with Mom's doctor friends...
+
+![](../uploads/070421_chelsea_market.jpeg)
+
+Then finally walked mom to the bus stop and dropped her off.
+
+I came home, sweaty, tired, wanting to chill, but in the spirit of the Fourth of July, I got off my ass (after cooking for the week) and headed to my next destination: Coney Island.
