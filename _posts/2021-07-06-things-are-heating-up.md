@@ -27,7 +27,7 @@ I could only take so much gorgeousness though before needing to escape to some a
 
 Things got spicy again when I headed to my hip hop dance class on Tuesday, and we learned a new set of moves. This week, feeling more comfortable, I actually started getting the hang of it. It helped that no one else had done this set of moves before, but also, I just think practice makes perfect, and Russell (the teacher) was great at taking the class at a slower pace. It was also, as always, so dang fun, and got me buzzed afterwards. 
 
-!["get that money money money"](../uploads/062921_hip_hop_dance.jpeg "\\\"get that money money money\\\"")
+!["get that money money money"](../uploads/062921_hip_hop_dance.jpeg "\\\\"get that money money money\\\\"")
 
 ![what a view on the way home](../uploads/062921_sunset.jpeg "what a view on the way home")
 
@@ -62,3 +62,7 @@ Not to mention, the office is just damn aesthetic. Photo dump incoming.
 \[events in hoboken setup]
 
 ![](../uploads/070221_hoboken_events.jpeg)
+
+\[something about it being ominous that the office was empty ... although the view was amazing]
+
+![](../uploads/070221_hoboken_office_empty_view.jpeg)
