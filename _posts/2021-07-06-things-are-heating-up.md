@@ -75,7 +75,7 @@ Not to mention, the office is just damn aesthetic. Photo dump incoming.
 
 ![Breakfast blogs in the Bronx](../uploads/070321_blogging_in_bronx.jpeg "Breakfast blogs in the Bronx")
 
-If breakfast was simple, though, dinner was anything but. Mom and I are huge foodies, so we went to a Michelin 2-star Scandanavian restaurant called Aquavit for dinner. We were both gonna get the 5-course tasting menus, but we decided to split two prix-fixe three-course menus for the variety and price. Needless to say, it was absolutely insane in quality, and I just closed my eyes and enjoyed the depth and dimension of flavors in each dish.
+If breakfast was simple, though, dinner was anything but. Mom and I are huge foodies, so we went to a Michelin 2-star Scandanavian restaurant called Aquavit for dinner. We were both gonna get the 5-course tasting menus, but we decided to split two prix-fixe three-course menus for the variety and price. Needless to say, it was absolutely insane in quality, and I just closed my eyes and enjoyed the depth and dimension of flavors in each dish. PC: Mom.
 
 ![](../uploads/070321_michelin_basil_tomato_app.jpeg)
 
@@ -83,6 +83,20 @@ If breakfast was simple, though, dinner was anything but. Mom and I are huge foo
 
 ![](../uploads/070321_michelin_jeff_app.jpeg)
 
-![](../uploads/070321_moms_app.jpeg)
+![](../uploads/070321_michelin_moms_app.jpeg)
 
-![](../uploads/070321_jeffs_lobster_main.jpeg)
+![](../uploads/070321_michelin_moms_main.jpeg)
+
+![](../uploads/070321_michelin_jeffs_lobster_main.jpeg)
+
+![](../uploads/070321_michelin_jeff_eating_lobster.jpeg)
+
+If there was a dish that stole the show, though, by and far, it would be the "Arctic Bird's Nest" dessert. Aesthetically stunning, my mind exploded while I tasted all the flavors ... it was a soul transcending foodie experience.
+
+![](../uploads/070321_michelin_arctic_birds_nest.jpeg)
+
+![](../uploads/070321_michelin_arctic_birds_nest_zoom_in.jpeg)
+
+It was a rare boogie way to wrap up my Saturday.
+
+![](../uploads/070321_michelin_jeff_mom.jpeg)
