@@ -2,6 +2,7 @@
 layout: post
 title: things are heating up
 date: 2021-07-04T12:46:00.000Z
+header_feature_image: ../uploads/070421_coney_island_ram_and_jeff.jpeg
 title_color: "#ffffff"
 comments: false
 tags:
