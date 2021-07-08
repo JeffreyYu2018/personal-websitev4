@@ -60,15 +60,15 @@ Not to mention, the office is just damn aesthetic. Photo dump incoming.
 
 ![wellness room](../uploads/070121_hoboken_office_10.jpeg "wellness room")
 
-\[I wanted to get out of the apartment, so I headed to office again on Friday after seeing how much I loved it. events in hoboken setup]
+I loved the office so much, in fact, that I headed there again on Friday. Hoboken's also just a really nice area to work in.
 
-![](../uploads/070221_hoboken_events.jpeg)
+![who knew there were so many events right across the river in hoboken??](../uploads/070221_hoboken_events.jpeg "who knew there were so many events right across the river in hoboken??")
 
-\[something about it being ominous that the office was empty ... although the view was amazing]
+There was something ominous about how the office was deserted though. To be fair, it was the day before the week-long holiday that EY gives us, and half of my engagement team wasn't even in the office. In fact, it felt like I was the only one there. That being said, it was a chill day, and it only left more room for the amazing views for myself. 
 
 ![](../uploads/070221_hoboken_office_empty_view.jpeg)
 
-\[as for other amazing views, I stopped by the WTC subway station on the way back from the office, and was thrilled to finally see the Oculus]
+As for other amazing views, I stopped by the WTC subway station on the way back from the office, and was thrilled to finally see the Oculus. It was completely spontaneous, but I'm glad I got to knock off yet ANOTHER thing off my list. 
 
 ![best detour I could have taken](../uploads/070221_oculus.jpeg "best detour I could have taken")
 
