@@ -8,9 +8,7 @@ comments: false
 tags:
   - NycSu21
 ---
-bet you liked that alliteration huh? ;)
-
-I'm gonna open the blog post with a most memorable moment from this week: exploring Greenwich Park on Monday. Such an innocuous gesture to get out of the house, but walking around a new area was a microcosm of that magic which struck me those first few days, of being a stranger in a foreign land. 
+Gonna open the blog post with the most memorable moment from this week: exploring Greenwich Park on Monday. Such an innocuous gesture to get out of the house, but walking around a new area was a microcosm of that magic which struck me those first few days, of being a stranger in a foreign land. 
 
 ![](../uploads/062121_greenwich_park.jpeg)
 
