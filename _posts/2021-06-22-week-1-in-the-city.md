@@ -8,9 +8,7 @@ comments: false
 tags:
   - NycSu21
 ---
-"New York is intense." 
-
-Those are the words that Leila, a friend-of-a-friend said to me on Saturday night at 3 am on a rooftap bar hundreds of feet in the sky. And for all purposes, I agreed wholeheartedly. New York is the type of place that either breaks you or makes you; fills you with opportunities or loneliness and dread. It's what you make of it ... a place that **amplifies** your experiences. It gives you the lowest lows, but also the highest highs. 
+"New York is intense." Those are the words that Leila, a friend-of-a-friend said to me on Saturday night at 3 am on a rooftap bar hundreds of feet in the sky. And for all purposes, I agreed wholeheartedly. New York is the type of place that either breaks you or makes you; fills you with opportunities or loneliness and dread. It's what you make of it ... a place that **amplifies** your experiences. It gives you the lowest lows, but also the highest highs. 
 
 If pandemic life during covid was a stale cracker, then a summer in the city is like a shot of energy drink. It's a punch in the face.
 
