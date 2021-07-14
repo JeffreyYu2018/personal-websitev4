@@ -53,7 +53,9 @@ And the very first place to start was my fear of heights, through skydiving. Alt
 
 ![](../uploads/070821_poughkeepsie_weather_rain.png)
 
-You see, I've always wanted to take skydiving off of my bucket list. I didn't ever think this would be the summer to do it, except I saw a reddit post one day in r/nycmeetups from a 18F girl who wanted to go skydiving with people. I didn't think much of it - in fact I laughed it off - but as I thought about it more, I started to change my mind. If my goal this summer was to be a summer of yes, to embrace spontaneity ... what was holding me back? I could think of a few reasons to say no - the sketchiness of going with strangers - but also a million reasons to say yes. What an epic story that would be ... spending my summer after a year locked up at home, skydiving with strangers from Reddit.
+You see, I've always wanted to take skydiving off of my bucket list. I didn't ever think this would be the summer to do it, except I saw a reddit post one day in r/nycmeetups from a 18F girl who wanted to go skydiving with people. I didn't think much of it - in fact I laughed it off - but as I thought about it more, I started to change my mind. If my goal this summer was to be a summer of yes, to embrace spontaneity ... what was holding me back? I could think of a few reasons to say no - the sketchiness of going with strangers - but also a million reasons to say yes. 
+
+I weighted the risks and potential rewards. What was I risking? One lost day of spending an awkward time with people I didn't really like. The potential rewards? An epic story after my summer after a year locked up at home, skydiving with strangers from Reddit.
 
 So on Friday morning, on a rainy, overcast day in New York, I headed from my apartment on a fateful trip to GCT (Grand Central Terminal). My mind was filled with doubts. I had already had four friends who had initially committed drop out last second, due to personal reasons, weather, or something else. Was I making the right choice by going alone? What if these strangers flaked? or were creeps? or were weird people? What if it rained? What if I wasted my money? What I had to spend the next few hours of my day hanging out awkwardly with people I didn't want to be with? Was I making the right decision?
 
@@ -61,4 +63,6 @@ There I was, hanging out in the main lobby, waiting for these three mysterious s
 
 The other Redditors started to fall in. Fun, a tall, energetic guy in his late 20s. Das, a mid-20s chill guy who worked in tech. And Sarah, a quirky 18 year old with an insatiable desire for thrill.
 
-Soon we were off. The skydiving ranch was in upstate NY, and I thought the two hour train ride up to Poughkeepsie would be awkward and closed off. But no - we VIBED.
+Soon we were off. The skydiving ranch was in upstate NY, and I thought the two hour train ride up to Poughkeepsie would be awkward and closed off. But no - we VIBED. Far from the introverted recluse, these Redditors were some of the most extroverted people I'd met. It was unbelievable. We went from playing cards to sharing our excitement about thrills to talking about relationships. The train ride passed by in no time -- in fact, we missed our initially planned train stop because we were having such a blast.
+
+As we grabbed lunch in a sushi place, we looked outside and couldn't believe our luck. The overcast skies in the city from the morning were clearing up, being replaced by a clear blue sky. Our hopes were alive! Squeezing into a Lyft car, we were off to the races.
