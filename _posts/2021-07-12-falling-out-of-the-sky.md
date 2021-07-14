@@ -36,3 +36,29 @@ Boba and other Asiatic-flavored cream puffs and mochi donuts?? I could die in he
 ![milk and honey + boba cream puffs, along with a matcha mochi donut](../uploads/070721_alimama_my_food.jpeg "milk and honey + boba cream puffs, along with a matcha mochi donut")
 
 In order of increasing oishi-ness, it would be matcha mochi donut, boba cream puff, and milk and honey cream puff. I was actually surprised that I wasn't blown away by the boba cream puff -- it tasted good, don't get me wrong, but there was no "wow" factor. It tasted just like boba in a donut. BUT, the milk and honey cream puff ... now THAT was absolutely delicious. I'm a sucker for dairy, and the cream was nothing like I had ever had before. Even if the others were more of a novelty, that one was a 10/10, must try. Definitely gotta go back at some point to try the other flavors.
+
+# outside of comfort zone
+
+Changing topics, that same night I indulged in those asiatic flavors from wonderland, I also stumbled upon one of the most inspiring TED talks I had seen a while. "What I Learned from 100 Days of Rejection" popped up in my YT recommended, and I watched it, not expecting much. But it ended up resonating with me on multiple wavelengths. 
+
+<div class="video-box"><iframe width="560" height="315" src="https://www.youtube.com/embed/-vZXgApsPCQ?rel=0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe></div>
+
+I've always been held back my fears; fears of heights, of performance, of making scenes in public, of failure. My friend Kevin put it aptly when he said that the kids who get into places like Yale aren't accustomed to failing, or else they wouldn't be in the place they are now. And for me, it couldn't hold up more truly. I've been afraid of failing since I was a kid, and despite an external facade of success, failure has stung me on multiple occasions. Like even though I got into Yale, getting rejected from UPenn, my ED school, despite having legacy and being statistically "easier" to get into, was one of the most crushing moments of my life. I remember bursting into tears that night, and never wanting to experience that feeling again.
+
+The thing is, failure is one of the most important catalysts for self growth, and it's been the one area of my self-development that I haven't worked on as consciously. Adopting a healthy attitude towards self-growth. And the only way to develop that type of internal courage and strength is through confronting it head on. 
+
+That's what drew me to this video so much. [The 100 Days of Rejection Therapy](https://www.rejectiontherapy.com/100-days-of-rejection-therapy) is an **actionable** plan to directly confront one of my deepest mental obstacles. It's silly on the surface, but actually incredibly meaningful and brave. I left my Wednesday night inspired and ready to step out of my comfort zone.
+
+And the very first place to start was my fear of heights, through skydiving. Although to be honest, the signs did not look good all week. It was raining, with a tropical storm coming through New York, hitting hard and even [flooding the subways](https://www.nytimes.com/2021/07/08/nyregion/flooding-subways-nyc.html). Not only was it a rocky start to the date I had that day, but it also put an ominous cloud (quite literally) over my Friday plans.
+
+![](../uploads/070821_poughkeepsie_weather_rain.png)
+
+You see, I've always wanted to take skydiving off of my bucket list. I didn't ever think this would be the summer to do it, except I saw a reddit post one day in r/nycmeetups from a 18F girl who wanted to go skydiving with people. I didn't think much of it - in fact I laughed it off - but as I thought about it more, I started to change my mind. If my goal this summer was to be a summer of yes, to embrace spontaneity ... what was holding me back? I could think of a few reasons to say no - the sketchiness of going with strangers - but also a million reasons to say yes. What an epic story that would be ... spending my summer after a year locked up at home, skydiving with strangers from Reddit.
+
+So on Friday morning, on a rainy, overcast day in New York, I headed from my apartment on a fateful trip to GCT (Grand Central Terminal). My mind was filled with doubts. I had already had four friends who had initially committed drop out last second, due to personal reasons, weather, or something else. Was I making the right choice by going alone? What if these strangers flaked? or were creeps? or were weird people? What if it rained? What if I wasted my money? What I had to spend the next few hours of my day hanging out awkwardly with people I didn't want to be with? Was I making the right decision?
+
+There I was, hanging out in the main lobby, waiting for these three mysterious strangers, who I only knew by usernames and first names, to come by. I tapped my foot, waiting, wondering. And then I felt a tap on my shoulder. It was a relatively short, Asian girl with glasses looking inspectively at me. "Are you Jeff?" with a crinkle in her eyes giving away a smile under her mask. She looked completely normal! I smiled, and said yes. I had met the first Redditor!
+
+The other Redditors started to fall in. Fun, a tall, energetic guy in his late 20s. Das, a mid-20s chill guy who worked in tech. And Sarah, a quirky 18 year old with an insatiable desire for thrill.
+
+Soon we were off. The skydiving ranch was in upstate NY, and I thought the two hour train ride up to Poughkeepsie would be awkward and closed off. But no - we VIBED.
