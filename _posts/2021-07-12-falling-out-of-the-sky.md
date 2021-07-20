@@ -154,3 +154,17 @@ It was a night market with a New York twist - all of the stalls represented cuis
 Two travelers trying cuisines from around the world? Sound familiar? Great end to a fun night.
 
 ![](../uploads/071021_jeff_and_yunnie_queens_night_market.jpeg)
+
+My favorite memories? Us vibing, and us sharing our favorite characteristics in each other. Apparently I was a positive person with a ton of drive, and that made me smile because it was validation for what had been a long, uncertain two year journey. If only my high school self could see me now. And funniest memory? Yunnie being cold, and me conveniently having a jacket in my backpack in preparation for rain. Idk why, but those little conveniences made me laugh. I just like being a better host. Apparently my personality, Protagonists, love to bring joy to other people. And that was certainly true. 
+
+Saturday was the day that I hung out most with Yunnie, but even though we enjoyed hanging out together, I had a lot of stuff on Sunday, and Yunnie had other friends she wanted to hang with. So that day, we parted ways briefly. I was exhausted and sleep-deprived and needed some more low-energy time too.
+
+![Watched the Wimbledon final with Ming, my hitting partner. soo happy to geek out with a fellow tennis enthusiast](../uploads/071121_wimby_final.jpeg "Watched the Wimbledon final with Ming, my hitting partner. soo happy to geek out with a fellow tennis enthusiast")
+
+Can never neglect errands without consequences, so I used the free time to make a run to TJs and also head to my first ever comedy improv class. There was an incredible diversity of people and skillsets, and it was SO fun. We played bonding games, maintained an upbeat vibe, and just had a blast. For once, I was actually itching to get on the stage - that’s how much I enjoyed it, which blew me away. Needless to say, it picked up my mood, and by the evening I was ready for another round.
+
+But Yunnie was tired from a day of wandering around the city hanging out with other friends, and we ended up doing something chill. We went to a Spanish tapas bar and got a super fancy Spanish 6 tapas prix-fixe meal. I think we had exhausted most of our convos topics by that point, so we just chilled more than anything. 
+
+![](../uploads/071121_spanish_tapas.jpeg)
+
+What a rich week of diverse experiences. And no other place could I have done it than in New York.
