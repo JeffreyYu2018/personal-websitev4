@@ -67,6 +67,6 @@ Soon we were off. The skydiving ranch was in upstate NY, and I thought the two h
 
 As we grabbed lunch in a sushi place, we looked outside and couldn't believe our luck. The overcast skies in the city from the morning were clearing up, being replaced by a clear blue sky. Our hopes were alive! Squeezing into a Lyft car, we were off to the races.
 
-It didn't really hit that we would be jumping out of a plane until I saw just how gorgeous the weather was when I got to the skydiving place. 
+It didn't really hit that we would be jumping out of a plane until I saw just how gorgeous the weather was when I got to the skydiving place. It was probably once after I had geared up, met my instructor Igor with 37+ years of experience, and prepared to board the plane, that I realized: the dream was taking on a whole new dimension of reality. 
 
-![]()
+![](../uploads/070921_skydiving_boarding_plane.jpeg)
