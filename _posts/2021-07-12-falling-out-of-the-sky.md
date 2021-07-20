@@ -70,3 +70,27 @@ As we grabbed lunch in a sushi place, we looked outside and couldn't believe our
 It didn't really hit that we would be jumping out of a plane until I saw just how gorgeous the weather was when I got to the skydiving place. It was probably once after I had geared up, met my instructor Igor with 37+ years of experience, and prepared to board the plane, that I realized: the dream was taking on a whole new dimension of reality. 
 
 ![](../uploads/070921_skydiving_boarding_plane.jpeg)
+
+I felt my heart fill with wonder and excitement as we ascended 2500, 5000, 7500 feet into the air, glimpsing sweeping views of Poughkeepsie and the Hudson River...
+
+![](../uploads/070921_skydiving_looking_out_plane.jpeg)
+
+And also melt into a flicker of nervousness as we got to the "red zone" of 13,500 feet, the jump off zone.
+
+![](../uploads/070921_skydiving_nervousness.jpeg)
+
+But when the moment came, that flicker surprisingly didn't rage into an inferno as I watched Das jump off, and feel my own body inch closer to the precipice.
+
+![](../uploads/070921_skydiving_about_to_jump.jpeg)
+
+Perhaps it was just done so fast that I didn't have time to process. In any case, all I remember was the sensation of freefalling through the air, plummeting and feeling my ears pop from the pressure change.
+
+![](../uploads/070921_skydiving_freefall.jpeg)
+
+The dive was INSANE ... I've never felt so much air whoosh against my body before. I could barely keep my eyes open from the force of it against my goggles.
+
+![](../uploads/070921_skydiving_midfall.jpeg)
+
+To be honest, it was an uncomfortable feeling, and I think I'd have to go again to truly enjoy the freefall. But once the parachute was released, I re-entered familiar territory. It was paragliding, just like in Taiwan more than a year ago... just a couple extra thousand feet in the air.
+
+![](../uploads/070921_skydiving_sky_view.jpeg)
