@@ -124,3 +124,33 @@ We explored, and I brought her to all of my favorite spots in the city, along wi
 ![a little action at little island](../uploads/071021_little_island.jpeg "a little action at little island")
 
 ![yunnie x jeff --> HLABbers forever!](../uploads/071021_yunnie_jeff_high_line.jpeg "yunnie x jeff --> HLABbers forever!")
+
+One funny anecdote is that on the walk, I just happened to have things in my bag that Yunnie needed. In fact, this became a theme of the trip. For example, Yunnie’s feet were bruised from walking on the high line so much? I had a pair of sacks placed in there from days before. This was TOTALLY by coincidence, but it just happened to work out this way, and I felt happy from unintentionally being a good host this way. 
+
+Anyway, getting back to the exploration…
+
+![stumblin upon the honeycomb-like vessel](../uploads/071021_vessel.jpeg "stumblin upon the honeycomb-like vessel")
+
+![jeff and yunnie @ the shops @ hudson yards](../uploads/071021_the_shops.jpeg "jeff and yunnie @ the shops @ hudson yards")
+
+![b8ta, a unique brick and mortar store with prototypes that haven't hit the full market yet](../uploads/071021_b8ta.jpeg "b8ta, a unique brick and mortar store with prototypes that haven't hit the full market yet")
+
+We walked home at that point, after waiting for a bus that was over FORTY FIVE MINUTES LATE. (\*rolls eyes at nyc metro transportation system\*) We both needed some rest time. For Yunnie, that meant passing out, and for me, that meant eating a meal in solitude and going to work out. 
+
+By then, though, we were ready to tackle the city again, and we were off on our next escapade: a nighttime one. In another callback to my time in Taiwan, say hello to the Queens Night Market.
+
+![](../uploads/071021_queens_night_market_entrance.jpeg)
+
+![](../uploads/071021_queens_night_market_crowd.jpeg)
+
+It was a night market with a New York twist - all of the stalls represented cuisines from around the world.
+
+![](../uploads/071021_shylhety_cuisine.jpeg)
+
+![food trio of bangladesh, cambodian, and other cuisines](../uploads/071021_food_trio.jpeg "food trio of bangladesh, cambodian, and other cuisines")
+
+![](../uploads/071021_filipino_cuisine.jpeg)
+
+Two travelers trying cuisines from around the world? Sound familiar? Great end to a fun night.
+
+![](../uploads/071021_jeff_and_yunnie_queens_night_market.jpeg)
