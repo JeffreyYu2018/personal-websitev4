@@ -1,7 +1,8 @@
 ---
 layout: post
-title: falling out of the sky
+title: head in the clouds
 date: 2021-07-12T23:17:25.521Z
+header_feature_image: ../uploads/070921_skydiving_sky_view.jpeg
 title_color: "#ffffff"
 comments: false
 tags:
