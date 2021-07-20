@@ -94,3 +94,9 @@ The dive was INSANE ... I've never felt so much air whoosh against my body befor
 To be honest, it was an uncomfortable feeling, and I think I'd have to go again to truly enjoy the freefall. But once the parachute was released, I re-entered familiar territory. It was paragliding, just like in Taiwan more than a year ago... just a couple extra thousand feet in the air.
 
 ![](../uploads/070921_skydiving_sky_view.jpeg)
+
+It was at that point that I could finally start to really enjoy the experience. We swooped and dived, glided and admired, and even touched and tasted a cloud! all while we inched closer to the ground.
+
+![](../uploads/070921_skydiving_landing_pt1.jpeg)
+
+![](../uploads/070921_skydiving_landing_pt_2.jpeg)
