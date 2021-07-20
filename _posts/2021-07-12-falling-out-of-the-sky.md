@@ -66,3 +66,7 @@ The other Redditors started to fall in. Fun, a tall, energetic guy in his late 2
 Soon we were off. The skydiving ranch was in upstate NY, and I thought the two hour train ride up to Poughkeepsie would be awkward and closed off. But no - we VIBED. Far from the introverted recluse, these Redditors were some of the most extroverted people I'd met. It was unbelievable. We went from playing cards to sharing our excitement about thrills to talking about relationships. The train ride passed by in no time -- in fact, we missed our initially planned train stop because we were having such a blast.
 
 As we grabbed lunch in a sushi place, we looked outside and couldn't believe our luck. The overcast skies in the city from the morning were clearing up, being replaced by a clear blue sky. Our hopes were alive! Squeezing into a Lyft car, we were off to the races.
+
+It didn't really hit that we would be jumping out of a plane until I saw just how gorgeous the weather was when I got to the skydiving place. 
+
+![]()
