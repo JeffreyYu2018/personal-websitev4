@@ -114,3 +114,13 @@ What a thrill of a day. As we Ubered back, I passed out in the car- my introvert
 I was STARVING, so the vodka pizza from one of the best pizza places in NYC absolutely smacked. After searching for 20 minutes, we eventually found a park nearby, settled, and proceeded to chat until the night fell. Yep, until 9 pm, and we were physically kicked out of the park. It was a chat with silliness, roleplaying, relationships, goals… and just a great time with unlikely friends in a big city. 
 
 As I conked out on my bed that night after returning home, all I could think of was all my doubts at the beginning, and just how crazy it would have been to have went home early from the rain. This was the BEST risk I couldd have taken, and I would have never imagined I would have actually jumped, vibes, and actually connected with a complete group of strangers. Just WOW. I was on top of the clouds … just so happy.
+
+# winding do... or so you thought
+
+But if you thought I would end one of the most thrilling, stimulating days of my life with something easy, you’re totally wrong. No, for the next two days, I would end up walking around the city with a dear friend of mine from the past: Yunnie, my co-mentor from teaching abroad in Tokyo two summers back. She was in town from Boston, and she crashed at my place for the weekend as I brought her to all of the coolest spots in the city. When we met, I somehow mustered the energy to vibe with Yunnie right off the bat (thanks Jake for my healthy nutrition + exercise plan!), and it was like we had never split up from that fateful teaching camp all those years ago.
+
+We explored, and I brought her to all of my favorite spots in the city, along withs one new ones.
+
+![a little action at little island](../uploads/071021_little_island.jpeg "a little action at little island")
+
+![yunnie x jeff --> HLABbers forever!](../uploads/071021_yunnie_jeff_high_line.jpeg "yunnie x jeff --> HLABbers forever!")
