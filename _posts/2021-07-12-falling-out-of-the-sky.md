@@ -100,3 +100,17 @@ It was at that point that I could finally start to really enjoy the experience. 
 ![](../uploads/070921_skydiving_landing_pt1.jpeg)
 
 ![](../uploads/070921_skydiving_landing_pt_2.jpeg)
+
+And as I landed, I and the others felt a rush of emotions hit me: the wonder, the joy, the disbelief that a group of strangers that had met just a few hours ago had just pulled it off.
+
+![](../uploads/070921_skydiving_landing_pt3.jpeg)
+
+![](../uploads/070921_skydiving_group.jpeg)
+
+What a thrill of a day. As we Ubered back, I passed out in the car- my introverted omnivert batteries needed a recharge. But the day wasn’t over, because as we headed back on the train to the city, we decided to grab some food to extend the day together. While Fun had to leave, Das, Sarah, and I decided to head to SoHo’s best pizza place: Prince Street Pizza. 
+
+![](../uploads/070921_prince_st_pizza_in_park.jpeg)
+
+I was STARVING, so the vodka pizza from one of the best pizza places in NYC absolutely smacked. After searching for 20 minutes, we eventually found a park nearby, settled, and proceeded to chat until the night fell. Yep, until 9 pm, and we were physically kicked out of the park. It was a chat with silliness, roleplaying, relationships, goals… and just a great time with unlikely friends in a big city. 
+
+As I conked out on my bed that night after returning home, all I could think of was all my doubts at the beginning, and just how crazy it would have been to have went home early from the rain. This was the BEST risk I couldd have taken, and I would have never imagined I would have actually jumped, vibes, and actually connected with a complete group of strangers. Just WOW. I was on top of the clouds … just so happy.
