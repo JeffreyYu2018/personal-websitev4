@@ -2,7 +2,7 @@
 layout: post
 title: winding down ... mostly
 date: 2021-07-18T14:33:24.795Z
-header_feature_image: ../uploads/071621_intern_coffee_chat_group_meetup.jpeg
+header_feature_image: ../uploads/071621_intern_social.jpeg
 title_color: "#ffffff"
 comments: false
 tags:
