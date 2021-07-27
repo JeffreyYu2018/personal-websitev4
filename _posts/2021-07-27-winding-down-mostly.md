@@ -2,10 +2,11 @@
 layout: post
 title: winding down ... mostly
 date: 2021-07-18T14:33:24.795Z
+header_feature_image: ../uploads/071621_intern_coffee_chat_group_meetup.jpeg
 title_color: "#ffffff"
 comments: false
 tags:
-  - ""
+  - NycSu21
 ---
 This week was not my best week, but that’s to be expected after peaking from such an insane week with skydiving. It started off slow and uneventful, with things simmering up in intensity up until the middle of the week.
 
@@ -59,27 +60,27 @@ But I can’t deny that the views were absolutely gorgeous.
 
 The nice thing about the Vessel is that it’s also right next to the High Line, an iconic hybrid urban-nature walkway that stretches from Hudson Yards all the way to Chelsea. A romantic place to take for a nighttime stroll, and also a wonderful place to geek out about the city at night.
 
-\[nighttime photo along high line]
+![](../uploads/071521_highline_night.jpeg)
 
 Friday was equally packed and intense. It was the day of the long-awaited EY mid-internship social. The 3 hour event was the first (and likely only) in-person internship event hosted officially by EY, and it was a group scavenger hunt around Greenwich Village followed by an hour BBQ reception. 
 
 It was a brilliantly sunny, but hot, day, and after a truncated work week, I biked and headed to Washington Square Park.
 
-\[Washington Square Park]
+![](../uploads/071621_wash_sq_park.jpeg)
 
 The group of interns wasn’t that hard to fine. There were hundreds of interns in the EY office alone, and the group of people sporting yellow and black EY swag gave away the location.
 
-\[interns in Washington Square Park]
+![](../uploads/071621_wash_sq_park_interns.jpeg)
 
 I’d love to lie and say that the next two hours were a blast, but to be honest, they were more of a sweaty mess. The riddles and clues were really cool and challenging, to my surprise, so it wasn’t that the activity was organized badly. Moreso, it was that we were wandering around in the 90+ degree NYC summer heat, which sapped our energy pretty closely. It *was* still fun to converse and bond — well, bond as much as you could with strangers in two hours — but the walking and thinking burned us out quickly. It got to the point where we had half an hour left and had only done 33 percent of all the riddles, and decided to just go to the BBQ place to chill. 
 
 That BBQ place was NOT what I expected. After a long day of trudging in the heat, I was expecting a nice air-conditioned sit-down meal with a speech or so. You know, the perfect thing for a group of interns with tired feet. But instead, the food ended up being a standing “apps and drinks” type of social. In other words, a typical networking event. The food was alright, and it was nice to stroll around and talk to new groups of interns while munching on hors d’ouevres. It gave me “club” and “college party” vibes for the first time in years … I hadn’t been in that type of social situation in forever. 
 
-\[pic of BBQ place social]
+![](../uploads/071621_intern_social.jpeg)
 
 But one nice side effect of it being an official, large networking event, was that I got a chance to see more interns from my zoom meetings in person, as they made the long commute up for the event. I’m not sure if the club and “tons of people” type of social scene is for me, but that’s one nice benefit anyways.
 
-\[Coffee Chat group - caption: kudos to these guys for taking the hour long commutes to meet-up!]
+![kudos to these guys for taking the hour long commutes to meet-up!](../uploads/071621_intern_coffee_chat_group_meetup.jpeg "kudos to these guys for taking the hour long commutes to meet-up!")
 
 One of the things I won't forget from Friday though was one of the best feelings I’ve had in a while … inclusivity. While having all these social events going on, my phone kept getting spammed by messages. From the EY intern group, from my skydiving group, and from my volleyball group. I normally keep messages to sub-10 alerts, but I got up to 60 this time. 
 
@@ -89,7 +90,7 @@ Not all my actions led to such good outcomes though. Late that night, I headed t
 
 That being said I, what HAS appealed to me is having something to do on late Friday and Saturday nights. And nothing confirmed it more than what happened the next day, on a rainy Saturday afternoon.
 
-\[rainy Saturday]
+![](../uploads/071721_rainy_saturday.jpeg)
 
 I didn't have any plans that day, and thought it would just be some time to myself to chill. But this is where investments in the past had influences on my present. What do I mean by this?
 
@@ -97,7 +98,7 @@ My old skydiving group set up something spontaneously that day, and within an ho
 
 There's this board game cafe in the r/nycmeetups subreddit that is a semi-meme, called Hex & Co. There are weekly meetups that happen there, and while I never went to the recurring one, I thought it'd be cool to check out and burn a few hours on a rainy day.
 
-\[Saturday hangout pics - jeff, das, sarah, and sarah's friend guy.]
+![jeff, das, sarah, and sarah's friend guy](../uploads/071721_hex_and_co_hangout.jpeg "jeff, das, sarah, and sarah's friend guy")
 
 We played Trivial Pursuit and Apples to Apples, and it was a chill, fun social time. I had to leave early because I had planned a makeup match with Ming. But I was surprised, but they all wanted to come with me, even though they were just beginners to the sport. I’d never met anyone who actually wanted to join me for my favorite sport, so I was hesitant and skeptical at first for why they would want to join. But I guess they were just social people and were the types to constantly want new stimulating things to do, because they seemed genuine in just wanting to play some tennis with me. So I put my doubts aside, and we planned to meetup at the tennis dome while I rushed home and changed.
 
@@ -107,7 +108,7 @@ But it was what happened that night that solidified me as a nighttime activity g
 
 Luckily, we DID manage to find a Baskin Robbins open that late, and we could finally sit down and shelter from the elements outside. 
 
-\[baskin-robbins]
+![](../uploads/071721_baskin_robbins.jpeg)
 
 Now I'm not gonna exaggerate and be like "we became BFFs that night," because the reality is that these two Redditors were still more like strangers than close friends. BUT what I can say is that we definitely got to know each other better, and we talked until 1 am in the morning about the most random things. Those late night deep talks and laughs are what I love the most. 
 
@@ -115,7 +116,7 @@ But if opening up with new people is something I enjoy, another thing I learned 
 
 Like at my comedy improv class, there was this incident with one of the attendees, who I’ll call Amy (although that wasn’t her real name). The prompt had to do with rollerskating, so I acted like a drunk rollerblader. To enhance the act, I pretend-stumbled into her and grabbed her shoulders to catch my balance. I touch people’s shoulders all the time, not only with friends, but even with strangers. It's no big deal. But Amy blew it up and considered it an invasion of boundaries. Of course, I apologized and was respectful of it for the future, but it just made me realize that some people just are more closed off in general. (And granted, this was in line with my read of her relatively difficult personality)
 
-\[comedy improv stage]
+![](../uploads/071821_comedy_improv.jpeg)
 
 But besides that little bit of drama, the end of the week was chill. I did errands, laundry, and cooking on Sunday evening after my class. I also had an hour long call with Tommy and Rita, my older brother and sister-in-law, about dating and being in NYC. Sometimes I don't know if I'm moving in the right direction — all I'm trying to do is keep putting myself out there. But I'm so lucky to have them in my life, as they’re people who will give me honest feedback when I ask. And I always ask, since that’s the life I want to live. One where I’m constantly working on my weaknesses or confronting my fears.
 
