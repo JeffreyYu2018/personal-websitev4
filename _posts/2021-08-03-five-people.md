@@ -5,7 +5,7 @@ date: 2021-07-25T16:52:42.415Z
 title_color: "#ffffff"
 comments: false
 tags:
-  - ""
+  - NycSu21
 ---
 You ever hear that quote, “you are the average of the five people closest to you”? Apropos to that quote, I’m not sure what this week of hanging out with friends implies about me. It’s an interesting question that I like to ask to my friends. Their five people have remained static and steady, and are illustrative of a solidified sense of identity. Whereas for me, my five people are constantly changing, and I think that says a lot about the self-growth and inner change I’ve been undergoing. 
 
@@ -123,31 +123,36 @@ I was especially inclined to go out in the end rather than relax inside all day 
 
 So in a breach of routine, I took advantage of my passport gym pass and squeezed in a workout by the Lexington Ave sister branch. I headed to the gym on Lexington Ave and squeezed in my workout …
 
-![this gym’s equipment was considerably nicer than the Chelsea one’s! :o](../uploads/072421_lexington_branch_nysc.jpeg "this gym’s equipment was considerably nicer than the Chelsea one’s! :o")
+![this gym’s equipment was considerably nicer than the Chelsea one’s! ](../uploads/072421_lexington_branch_nysc.jpeg "this gym’s equipment was considerably nicer than the Chelsea one’s! ")
 
 And biked an hour and a half back to the bubble to win a fun French-Open 7-5 7-5 7-5 scored match. It was my dream to play a 5 setter on red clay, so that was an absolute blast.
 
-![also found THIS gem of an island — there’s a FERRY that takes you over the East River … so cool!](../uploads/072421_roosevelt_island.jpeg "also found THIS gem of an island — there’s a FERRY that takes you over the East River … so cool!")
+![also found THIS gem of Roosevelt island — there’s a ferry that takes you over the East River ](../uploads/072421_roosevelt_island.jpeg "also found THIS gem of Roosevelt island — there’s a ferry that takes you over the East River")
 
 Remember how I said life’s surprise could be right around the corner? Well, the most random thing happened in the subway afterwards on the way home. As I was standing waiting for the train, this guy approached me and asked if I played tennis. Turns out this stranger graduated from USC, and worked and lived in Taipei and HK, and speaks fluent mandarin. Furthermore, he was a 4.0 and was interested in hitting more. I did give him my Facebook contact info, but all I could think of doing when I got home was laugh. NYC is a crazy place — where else would something like that, two strangers who would have never met otherwise — meet and connect in a random circumstance like that? 
 
-* In any case, it was only a small delay in my evening, because I was still off to the races. You see, to cap off the Saturday plans I’d cobbled together, I was headed off to grab dinner with Pong, one of the founders of OnTrack, and an old friend I met through DPops. 
+In any case, it was only a small delay in my evening, because I was still off to the races. You see, to cap off the Saturday plans I’d cobbled together, I was headed off to grab dinner with Pong, one of the founders of OnTrack, and an old friend I met through DPops. 
 
-\[OnTrack app — caption: Pong showed me what OnTrack had been working on since I interned there two summers ago … cool stuff!]
+![Pong showed me what OnTrack had been working on since I interned there two summers ago … cool stuff!](../uploads/072421_ontrack_app.png "Pong showed me what OnTrack had been working on since I interned there two summers ago … cool stuff!")
 
-* After a long back-and-forth on the logistics, we managed to meet up around 9 pm, and grab dinner together with his roommate Abby at one one of the most authentic Japanese ramen restaurant’s I’ve seen. 
+After a long back-and-forth on the logistics, we managed to meet up around 9 pm, and grab dinner together with his roommate Abby at one one of the most authentic Japanese ramen restaurant’s I’ve seen. 
 
-\[NR bao — caption: I was starving, and it was sooo oishi]
+![I was starving, and it was sooo oishi](../uploads/072421_nr_bao.jpeg "I was starving, and it was sooo oishi")
 
-\[dinner with Pong — caption: this place, NR, was the real deal — it had Toto hand dryers, and the waiters even bowed as we headed out!]
+![this place, NR, was the real deal — it had Toto hand dryers, and the waiters even bowed as we headed out!](../uploads/072421_jeff_pong_nr.jpeg "this place, NR, was the real deal — it had Toto hand dryers, and the waiters even bowed as we headed out!")
 
-* Pong and I then followed up the meal with a Van Leeuwens ice cream escapade to a nearby park. It was awesome to catch up with Pong, not only because he was doing some really inspiring stuff at McKinsey. Insane work hours and tiredness aside, he was excelling and happy with his job. 
-* The interaction made me realize a long-standing phenomenon I had wondered about: what made the people from Yale so special. The answer? Ambition. There’s a fire in people like Pong that I gravitate towards and am fed and inspired by. I like being around smart, driven people who challenge and excite me to become a better version of myself. Not just vocationally like in this example, but also in terms of extracurriculars and passions. Like, we even talked about vlogging and cameras, since Pong is an AV god, and I’d picked up an interest in cinematography over quarantine. 
-* Maybe that’s elitist, but maybe not. I see some of these qualities — of being inspired, of learning — in my close friend circle, even from those who didn’t go to elite universities. It’s not like only Yale students have this quality, but it’s definitely in a higher concentration. 
-* The other thing about Yale students? A lot of the time, it ends up in new collaborations, new experiences, and new opportunities. After talking about cameras, life, and Yale in this beautiful spot on the UWS, our chat slowly morphed into something with direct implications for my immediate future: an offer to join OnTrack again in the fall. It was smooth, and made sense. I had a lot of the things they needed — time, energy — and they had things I wanted — experience, flexibility, funding. While it’s tentative, the opportunity was now on the table. 
+Pong and I then followed up the meal with a Van Leeuwens ice cream escapade to a nearby park. It was awesome to catch up with Pong, not only because he was doing some really inspiring stuff at McKinsey. Insane work hours and tiredness aside, he was excelling and happy with his job. 
 
-\[Google Maps spot of UWS - beautiful gem to stop by if you’re in the area.] 
+The interaction made me realize a long-standing phenomenon I had wondered about: what made the people from Yale so special. The answer? Ambition. There’s a fire in people like Pong that I gravitate towards and am fed and inspired by. I like being around smart, driven people who challenge and excite me to become a better version of myself. Not just vocationally like in this example, but also in terms of extracurriculars and passions. Like, we even talked about vlogging and cameras, since Pong is an AV god, and I’d picked up an interest in cinematography over quarantine. 
 
-* It’s kind of funny how this dinner mirrored my original internship recruiting call freshman year … starting with ramen, and ending with late 3 am conversations. I like to tell myself that life is throwing out opportunities left and right. Maybe it’s because I keep putting myself out there, but I like to think of it as creating my own luck and seizing everything that comes my way. 
-* Even though I said it was going to be a slower week for me, it still felt so packed. How perfect though, that it ended the way it started, in a slow and rare Sunday evening to myself. As I reflect, I keep coming to the lesson from my meditation app and the principle of mindfulness. Releasing and embracing the present, paradoxically, is the best thing for staying hungry for a brighter future, because it gives something in short supply nowadays: clarity. 
-* Writing this post was a life checkpoint, and maybe by reading this, it will be for you too. Think about your five people. Maybe they’re already who you want them to be. But if they’re not, who do you want them to be? Because that’ll speak volumes on who YOU want to be.
+Maybe that’s elitist, but maybe not. I see some of these qualities — of being inspired, of learning — in my close friend circle, even from those who didn’t go to elite universities. It’s not like only Yale students have this quality, but it’s definitely in a higher concentration. 
+
+The other thing about Yale students? A lot of the time, it ends up in new collaborations, new experiences, and new opportunities. After talking about cameras, life, and Yale in this beautiful spot on the UWS, our chat slowly morphed into something with direct implications for my immediate future: an offer to join OnTrack again in the fall. It was smooth, and made sense. I had a lot of the things they needed — time, energy — and they had things I wanted — experience, flexibility, funding. While it’s tentative, the opportunity was now on the table. 
+
+![beautiful gem to stop by if you’re in the area.](../uploads/072421_uws_park_gem.png "beautiful gem to stop by if you’re in the area.")
+
+It’s kind of funny how this dinner mirrored my original internship recruiting call freshman year … starting with ramen, and ending with late 3 am conversations. I like to tell myself that life is throwing out opportunities left and right. Maybe it’s because I keep putting myself out there, but I like to think of it as creating my own luck and seizing everything that comes my way. 
+
+Even though I said it was going to be a slower week for me, it still felt so packed. How perfect though, that it ended the way it started, in a slow and rare Sunday evening to myself. As I reflect, I keep coming to the lesson from my meditation app and the principle of mindfulness. Releasing and embracing the present, paradoxically, is the best thing for staying hungry for a brighter future, because it gives something in short supply nowadays: clarity. 
+
+Writing this post was a life checkpoint, and maybe by reading this, it will be for you too. Think about your five people. Maybe they’re already who you want them to be. But if they’re not, who do you want them to be? Because that’ll speak volumes on who YOU want to be.
