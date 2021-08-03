@@ -55,24 +55,25 @@ These supportive, friendly, genuine conversations brings me back to the initial 
 
 Not only has the group of five people changed so much for me, but the context surrounding those hangouts has as well. I’ve discovered a suppressed appetite for adventure and spontaneity that I didn’t know I’d kept holed up all these years. Hangouts that were filled with Super Smash Bros matches or casual lunchtime chats had been supplanted by dynamic activities like skydiving and board games. 
 
-\[EY-sponsored Uber meal with the three boxes - this Filipino-Mexican meal was sponsored by EY and was delicious, but meals had no longer the social highlight of my week]
+![this Filipino-Mexican meal was sponsored by EY and was delicious, but meals had no longer the social highlight of my week](../uploads/072121_ey_sponsored_meal_mexican_filipino.jpeg "this Filipino-Mexican meal was sponsored by EY and was delicious, but meals had no longer the social highlight of my week")
 
-* It might seem silly — “of course, everyone loves doing those things! Isn’t everyone like that?” Well, for me, I wasn’t. But now that I’ve tried it out, I’m hooked and don’t know if I can go back to my old lifestyle without guilt. 
-* By now, that adventurous tendency has manifested in the form of a 100+ item list of things to do in NYC. Each and every week, I make the effort to knock out two or three items off of it, with the goal being to hit one place per day on average. One such hidden gem was kayaking on the NYC harbor, and unlike my past self, this time I found a spontaneous and active friend willing to go with me on such a trip: Han, a friend of Meaghan. 
+It might seem silly — “of course, everyone loves doing those things! Isn’t everyone like that?” Well, for me, I wasn’t. But now that I’ve tried it out, I’m hooked and don’t know if I can go back to my old lifestyle without guilt. 
 
-\[pier 26 picture]
+By now, that adventurous tendency has manifested in the form of a 100+ item list of things to do in NYC. Each and every week, I make the effort to knock out two or three items off of it, with the goal being to hit one place per day on average. One such hidden gem was kayaking on the NYC harbor, and unlike my past self, this time I found a spontaneous and active friend willing to go with me on such a trip: Han, a friend of Meaghan. 
 
-* Excitement. That’s all that was on my mind as I waited for the minutes of work to tick down, and in my body as I sprint-biked down the coast of Manhattan to pier 26, and in my chest as I saw the kayaks floating on the pristine water on a stunning day. 
+![](../uploads/072121_pier_26.jpeg)
 
-\[free kayaking fence picture]
+Excitement. That’s all that was on my mind as I waited for the minutes of work to tick down, and in my body as I sprint-biked down the coast of Manhattan to pier 26, and in my chest as I saw the kayaks floating on the pristine water on a stunning day. 
 
-\[Jeff and Han on the waterfront]
+![](../uploads/072121_free_kayaking.jpeg)
 
-* Wonder. That’s what was in my mind as we joint-explored the new neighborhood of Tribeca.
+![](../uploads/072121_jeff_han_kayaking.jpeg)
 
-\[pic of TriBeca]
+Wonder. That’s what was in my mind as we joint-explored the new neighborhood of Tribeca.
 
-* But I had planned those two activities, and they couldn’t hold a torch to the best emotion of all: surprise. The cherry on top of the cake was the spontaneous outing at the end of the day to Mango Mango, a child time favorite dessert place with a lot of nostalgic meaning.
+![](../uploads/072121_tribeca_wandering.jpeg)
+
+But I had planned those two activities, and they couldn’t hold a torch to the best emotion of all: surprise. The cherry on top of the cake was the spontaneous outing at the end of the day to Mango Mango, a child time favorite dessert place with a lot of nostalgic meaning.
 
 \[mango mango desserts]
 
