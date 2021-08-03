@@ -75,29 +75,29 @@ Wonder. That’s what was in my mind as we joint-explored the new neighborhood o
 
 But I had planned those two activities, and they couldn’t hold a torch to the best emotion of all: surprise. The cherry on top of the cake was the spontaneous outing at the end of the day to Mango Mango, a child time favorite dessert place with a lot of nostalgic meaning.
 
-\[mango mango desserts]
+![](../uploads/072121_mango_mango_dessert_han.jpeg)
 
-* The social momentum kept building up. After slugging through technical work and future planning on Thursday, I reaped the fruits (or should I say, meats) of my rewards by heading to J-Spec, an upscale East Village Japanese restaurant, with Meagan. In honor of Restaurant Week, we were there to try out the $39 prix-fixe wagyu-beef dinner special. While I don’t know if I’d spend $39 on beef again, I could DEFINITELY taste the upgrade.
+The social momentum kept building up. After slugging through technical work and future planning on Thursday, I reaped the fruits (or should I say, meats) of my rewards by heading to J-Spec, an upscale East Village Japanese restaurant, with Meagan. In honor of Restaurant Week, we were there to try out the $39 prix-fixe wagyu-beef dinner special. While I don’t know if I’d spend $39 on beef again, I could DEFINITELY taste the upgrade.
 
-\[wagyu beef bowl picture]
+![](../uploads/072221_wagyu_beef_bowl.jpeg)
 
-* It was one of those rare moments where I just wanted to shut up and savor the food. Yes, it was that good. So, despite the high-energy person that I am, I just listened to Meg talk, and took it slow.
+It was one of those rare moments where I just wanted to shut up and savor the food. Yes, it was that good. So, despite the high-energy person that I am, I just listened to Meg talk, and took it slow.
 
-\[pic with Meg and Jeff]
+![](../uploads/072221_dinner_with_meg_jspec.jpeg)
 
-* Afterwards, I pestered Meag to come with me to the Spot, a nearby famous dessert restaurant. I love umami meals, but my sweet tooth wouldn’t let me go that easily.
+Afterwards, I pestered Meag to come with me to the Spot, a nearby famous dessert restaurant. I love umami meals, but my sweet tooth wouldn’t let me go that easily.
 
-\[the spot dessert menu]
+![](../uploads/072221_the_spot_dessert_menu.png)
 
-* As a guy who grew up watching Kitchen Nightmares, Masterchef, and all memes Ramsay, I was blown away by the idea of an Asian-American, high end dessert place. It was like my fever dream restaurant had come to life, combining all of my favorite things together, all to enjoy on a perfectly cool summer evening. 
+As a guy who grew up watching Kitchen Nightmares, Masterchef, and all memes Ramsay, I was blown away by the idea of an Asian-American, high end dessert place. It was like my fever dream restaurant had come to life, combining all of my favorite things together, all to enjoy on a perfectly cool summer evening. 
 
-\[the spot restaurant - a super festive vibe, with NO line!]
+![a super festive vibe, with NO line!](../uploads/072221_the_spot.jpeg "a super festive vibe, with NO line!")
 
-* The menu had so many items, from matcha lava cakes to golden toast, that it took an agonizing 15 minutes before I settled on the Milky Puff, an exotic concoction composed of bananas, puff pasty, honey comb, corn flakes, and condensed ice cream. 
+The menu had so many items, from matcha lava cakes to golden toast, that it took an agonizing 15 minutes before I settled on the Milky Puff, an exotic concoction composed of bananas, puff pasty, honey comb, corn flakes, and condensed ice cream. 
 
-\[milky puff dessert — caption: it was my affinity to dairy that was the turning point.]
+![it was my affinity to dairy that was the turning point.](../uploads/072221_the_spot_milky_puff_and_cookie.jpeg "it was my affinity to dairy that was the turning point.")
 
-* Beyond the world-class aesthetic, the taste was top 5 of all time. The summer special I ordered included a caramel miso cookie which paired MAGNIFICENTLY with mango main. The warm, gooey, punching flavor of the cookie, complemented by the milky, light, airy flavor of the milky puff… god damn. 
+Beyond the world-class aesthetic, the taste was top 5 of all time. The summer special I ordered included a caramel miso cookie which paired MAGNIFICENTLY with mango main. The warm, gooey, punching flavor of the cookie, complemented by the milky, light, airy flavor of the milky puff… god damn. 
 
 \[harvest + milky puff dessert explanation — caption: the complexity that goes into meg and I’s desserts]
 
