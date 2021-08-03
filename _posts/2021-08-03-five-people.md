@@ -35,20 +35,25 @@ For me, nothing better complements a fresh heaping of surprise with a dose of fr
 
 The walk cleared my mind. Suddenly, I could put my dating drama back into perspective, and rekindle my hope in brighter weeks to follow. 
 
-\[alone in the subway - caption: alone in the subway, with my thoughts]
+![alone in the subway, with my thoughts](../uploads/071921_subway_alone.jpeg "alone in the subway, with my thoughts")
 
-* One of the timeliness themes of this week has been relinquishing my grip over my thoughts, while living in the moment. It seems contradictory, but as I’ve advanced further in my meditation journey, I’ve learned they aren’t the same.  
-* An important skill that I practice each morning, under the tutelage of the Waking Up app, is resetting my frame and beginning my focus again. It’s about relinquishing what happened in the past, and giving myself a fresh start. 
-* Now, I love self-reflection and planning ahead way more than the average person, so this practice is antithetical to my natural behavior. But, this type of state of being is the foundation of forgiveness, which is rooted in moving on from the past, and also resilience, which is giving the present your full attention once again. 
-* It’s powerful stuff, the idea that we always have the option to move past a story we’ve been saying to ourselves, and regard doubt as a transient appearance in consciousness instead of permanent companion. For me, it allows me to fully enjoy the present while maintaining a clear view into the future. 
-* Tuesday evening, I got my first taste of what it was like to live in the present after my dance class. 
-* I stopped by my gym to chat with Lydia and EJ, two of the front desk staff I befriended early on, in a totally unplanned encounter. I pass them everyday on the way to my workout, but I never had the time to sit and catch up. That Tuesday evening, in a moment of breaking out of my autopilot routine, I figured it’d be a good use of my extra time. So we chatted, about the Fourth of July, about the nyc dating market, and about city life. 
-* These supportive, friendly, genuine conversations brings me back to the initial quote that kick started this blog. 
+One of the timeliness themes of this week has been relinquishing my grip over my thoughts, while living in the moment. It seems contradictory, but as I’ve advanced further in my meditation journey, I’ve learned they aren’t the same.  
 
-\[EY coffee chat presentation — caption: I knew I had to write about this quote once it started organically appearing outside my conversations, like in my EY presentations]
+An important skill that I practice each morning, under the tutelage of the Waking Up app, is resetting my frame and beginning my focus again. It’s about relinquishing what happened in the past, and giving myself a fresh start. 
 
-* *You are the average of the five people you spend the most time with” - Jim Rohn*
-* Not only has the group of five people changed so much for me, but the context surrounding those hangouts has as well. I’ve discovered a suppressed appetite for adventure and spontaneity that I didn’t know I’d kept holed up all these years. Hangouts that were filled with Super Smash Bros matches or casual lunchtime chats had been supplanted by dynamic activities like skydiving and board games. 
+Now, I love self-reflection and planning ahead way more than the average person, so this practice is antithetical to my natural behavior. But, this type of state of being is the foundation of forgiveness, which is rooted in moving on from the past, and also resilience, which is giving the present your full attention once again. 
+
+It’s powerful stuff, the idea that we always have the option to move past a story we’ve been saying to ourselves, and regard doubt as a transient appearance in consciousness instead of permanent companion. For me, it allows me to fully enjoy the present while maintaining a clear view into the future. 
+
+Tuesday evening, I got my first taste of what it was like to live in the present after my dance class. I stopped by my gym to chat with Lydia and EJ, two of the front desk staff I befriended early on, in a totally unplanned encounter. I pass them everyday on the way to my workout, but I never had the time to sit and catch up. That Tuesday evening, in a moment of breaking out of my autopilot routine, I figured it’d be a good use of my extra time. So we chatted, about the Fourth of July, about the nyc dating market, and about city life. 
+
+These supportive, friendly, genuine conversations brings me back to the initial quote that kick started this blog. 
+
+![I knew I had to write about this quote once it started organically appearing outside my conversations, like in my EY presentations](../uploads/072121_ey_coffee_chat_avg_five_people.jpeg "I knew I had to write about this quote once it started organically appearing outside my conversations, like in my EY presentations")
+
+> *You are the average of the five people you spend the most time with” - Jim Rohn*
+
+Not only has the group of five people changed so much for me, but the context surrounding those hangouts has as well. I’ve discovered a suppressed appetite for adventure and spontaneity that I didn’t know I’d kept holed up all these years. Hangouts that were filled with Super Smash Bros matches or casual lunchtime chats had been supplanted by dynamic activities like skydiving and board games. 
 
 \[EY-sponsored Uber meal with the three boxes - this Filipino-Mexican meal was sponsored by EY and was delicious, but meals had no longer the social highlight of my week]
 
