@@ -99,36 +99,38 @@ The menu had so many items, from matcha lava cakes to golden toast, that it took
 
 Beyond the world-class aesthetic, the taste was top 5 of all time. The summer special I ordered included a caramel miso cookie which paired MAGNIFICENTLY with mango main. The warm, gooey, punching flavor of the cookie, complemented by the milky, light, airy flavor of the milky puff… god damn. 
 
-\[harvest + milky puff dessert explanation — caption: the complexity that goes into meg and I’s desserts]
+![the ingredient complexity that goes into meg and I’s desserts ...](../uploads/072221_the_spot_meg_jeff_menu_dessert_description.jpeg "the ingredient complexity that goes into meg and I’s desserts ...")
 
-* As usual, the frenzy started to pick up so much by Thursday that it became hard to keep up, in a good way. 
-* Friday was especially hard to digest and process. It started off with work slamming me with engagements, spontaneous socializing as I headed into the Chelsea office to meet a fellow intern, and unroutine-like EY-sponsored meals with my counselor. 
+As usual, the frenzy started to pick up so much by Thursday that it became hard to keep up, in a good way. 
 
-\[pic of me with Angelina]
+Friday was especially hard to digest and process. It started off with work slamming me with engagements, spontaneous socializing as I headed into the Chelsea office to meet Angelina, a fellow intern, and unroutine-like EY-sponsored meals with my counselor. 
 
-* The day was just starting though. The real action came in the evening, where I was set to hang out with Sarah, one of the skydivers from the Reddit group. I’d cobbled together a list of things in NYC I’d always wanted to do into one packed evening. 
+![](../uploads/072321_jeff_angelina_chelsea_ey_office.jpeg)
 
-\[Jeff at the CitiBikes at sunset — caption: citiBiking along the Hudson Riverway at sunset (gorgeous!)]
+The day was just starting though. The real action came in the evening, where I was set to hang out with Sarah, one of the skydivers from the Reddit group. I’d cobbled together a list of things in NYC I’d always wanted to do into one packed evening. 
 
-\[edge at night — caption: going up 100+ stories to the edge, one of the highest observation decks in the city.]
+![citiBiking along the Hudson Riverway at sunset (gorgeous!)](../uploads/072321_citibike_sunset.jpg "citiBiking along the Hudson Riverway at sunset (gorgeous!)")
 
-* Saturday was interesting, as it started initially as a calm, relaxing day to sleep in and take it easy, and gradually morphed into a day that was just as packed. After both Ming and I’s plans got cancelled last minute, we threw together a tennis slugfest for that afternoon in the bubble. 
+![going up 100+ stories to the edge, one of the highest observation decks in the city.](../uploads/072321_the_edge_night.jpeg "going up 100+ stories to the edge, one of the highest observation decks in the city.")
 
-\[Union square - stumbled into this farmers market in Union Square on a bright, sunny Saturday afternoon. Definitely gonna come back and scope it out more fully in the future!]
+Saturday was interesting, as it started initially as a calm, relaxing day to sleep in and take it easy, and gradually morphed into a day that was just as packed. After both Ming and I’s plans got cancelled last minute, we threw together a tennis slugfest for that afternoon in the bubble. 
 
-* I was especially inclined to go out in the end rather than relax inside all day because CitiBike was offering free unlimited rides to New Yorkers that Saturday. 
+![stumbled into this farmers market in Union Square on a bright, sunny Saturday afternoon. Definitely gonna come back and scope it out more fully in the future!](../uploads/072421_union_sq_farmers_market.jpeg "stumbled into this farmers market in Union Square on a bright, sunny Saturday afternoon. Definitely gonna come back and scope it out more fully in the future!")
 
-\[TimeOut article on CitiBike — caption: I LOVE TimeOut … would have never found out about this gem otherwise]
+I was especially inclined to go out in the end rather than relax inside all day because CitiBike was offering free unlimited rides to New Yorkers that Saturday. 
 
-* So in a breach of routine, I took advantage of my passport gym pass and squeezed in a workout by the Lexington Ave sister branch. I headed to the gym on Lexington Ave and squeezed in my workout …
+![I LOVE TimeOut … would have never found out about this gem otherwise](../uploads/072421_citibike_free.png "I LOVE TimeOut … would have never found out about this gem otherwise")
 
-\[Lexington NYSC gym bench — caption: this gym’s equipment was considerably nicer than the Chelsea one’s! :o]
+So in a breach of routine, I took advantage of my passport gym pass and squeezed in a workout by the Lexington Ave sister branch. I headed to the gym on Lexington Ave and squeezed in my workout …
 
-* And biked an hour and a half back to the bubble to win a fun French-Open 7-5 7-5 7-5 scored match. It was my dream to play a 5 setter on red clay, so that was an absolute blast.
+![this gym’s equipment was considerably nicer than the Chelsea one’s! :o](../uploads/072421_lexington_branch_nysc.jpeg "this gym’s equipment was considerably nicer than the Chelsea one’s! :o")
 
-\[Roosevelt Island - caption: also found THIS gem of an island — there’s a FERRY that takes you over the East River … so cool!]
+And biked an hour and a half back to the bubble to win a fun French-Open 7-5 7-5 7-5 scored match. It was my dream to play a 5 setter on red clay, so that was an absolute blast.
 
-* Remember how I said life’s surprise could be right around the corner? Well, the most random thing happened in the subway afterwards on the way home. As I was standing waiting for the train, this guy approached me and asked if I played tennis. Turns out this stranger graduated from USC, and worked and lived in Taipei and HK, and speaks fluent mandarin. Furthermore, he was a 4.0 and was interested in hitting more. I did give him my Facebook contact info, but all I could think of doing when I got home was laugh. NYC is a crazy place — where else would something like that, two strangers who would have never met otherwise — meet and connect in a random circumstance like that? 
+![also found THIS gem of an island — there’s a FERRY that takes you over the East River … so cool!](../uploads/072421_roosevelt_island.jpeg "also found THIS gem of an island — there’s a FERRY that takes you over the East River … so cool!")
+
+Remember how I said life’s surprise could be right around the corner? Well, the most random thing happened in the subway afterwards on the way home. As I was standing waiting for the train, this guy approached me and asked if I played tennis. Turns out this stranger graduated from USC, and worked and lived in Taipei and HK, and speaks fluent mandarin. Furthermore, he was a 4.0 and was interested in hitting more. I did give him my Facebook contact info, but all I could think of doing when I got home was laugh. NYC is a crazy place — where else would something like that, two strangers who would have never met otherwise — meet and connect in a random circumstance like that? 
+
 * In any case, it was only a small delay in my evening, because I was still off to the races. You see, to cap off the Saturday plans I’d cobbled together, I was headed off to grab dinner with Pong, one of the founders of OnTrack, and an old friend I met through DPops. 
 
 \[OnTrack app — caption: Pong showed me what OnTrack had been working on since I interned there two summers ago … cool stuff!]
