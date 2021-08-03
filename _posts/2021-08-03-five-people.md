@@ -8,7 +8,7 @@ comments: false
 tags:
   - NycSu21
 ---
-You ever hear that quote, “you are the average of the five people closest to you”? Apropos to that quote, I’m not sure what this week of hanging out with friends implies about me. It’s an interesting question. While my friends' five people have remained steady, mine are constantly changing.
+You ever hear that quote, “you are the average of the five people closest to you”? Apropos to that quote, I’m not sure what this week of hanging out with friends implies about me. While my friends' five people have remained steady, mine are constantly changing.
 
 I think about identity a lot, especially as a type A person who is constantly trying to squeeze the most out of opportunities. For example, on Monday, I received my Light award, and discovered that ICLP’s online program doesn’t start until late September, which is SUPER late. Now, I’m cool with having free time, but I found it difficult to digest that I would have a month and a half of *nothing* between my internship and classes. A month and a half is a ton of time, and having an extra 40 hours a week feels like an eternity. As I sat down to think about it, I felt paralyzed by the cornucopia of choice. What would I focus on? Recruiting? Travel? Housing? Hobbies? 
 
