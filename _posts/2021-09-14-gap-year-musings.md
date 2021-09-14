@@ -1,7 +1,7 @@
 ---
 layout: post
 title: gap year musings
-date: 2021-09-14T00:20:41.196Z
+date: 2021-08-01T16:00:41.196Z
 header_feature_image: ../uploads/073121_flushing_park_beauty.jpeg
 title_color: "#ffffff"
 comments: false
