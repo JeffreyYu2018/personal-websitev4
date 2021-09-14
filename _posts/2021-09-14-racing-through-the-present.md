@@ -2,6 +2,7 @@
 layout: post
 title: racing through the present
 date: 2021-08-15T16:00:01.713Z
+header_feature_image: ../uploads/081321_hlab_reunion_chairs.jpeg
 title_color: "#ffffff"
 comments: false
 tags:
@@ -123,7 +124,7 @@ Okay, maybe it’s not as bad as I’m making it out to be. I have been re-envis
 
 It’s about passion in the present and future. Like with ZhenEd. 
 
-For context, my friend Kevin Zhen, who was my breakdancing coach when I joined freshman year, reached out to me this week with an opportunity: life coaching middle school and early high schoolers. But it was more than just a typical college consulting job— no, we would be working on a Charisma University-esque platform to democratize these principles to kids everywhere. In other words, I would be doing something I already love, teaching, which I’ve already done before while teaching motivation, passion, and leadership to HSers in Tokyo. I’d be doing things I was already somewhat skilled at or interested in, like software development of the website, and amateur video editing for the online classes. I’d be doing this all while working towards my dream to revolutionize education, AND have the the flexibility to enjoy my life. 
+For context, my friend [Kevin Zhen](https://www.youtube.com/c/KevinZhen), who was my breakdancing coach when I joined freshman year, reached out to me this week with an opportunity: life coaching middle school and early high schoolers. But it was more than just a typical college consulting job— no, we would be working on a Charisma University-esque platform to democratize these principles to kids everywhere. In other words, I would be doing something I already love, teaching, which I’ve already done before while teaching motivation, passion, and leadership to HSers in Tokyo. I’d be doing things I was already somewhat skilled at or interested in, like software development of the website, and amateur video editing for the online classes. I’d be doing this all while working towards my dream to revolutionize education, AND have the the flexibility to enjoy my life. 
 
 I can’t believe breakdancing freshman year led to this, and how much happened in the course of one week. I went from nothing planned to doing a bunch of things with friends while tutoring almost 10 kids life coaching. What a dream - getting paid to teach what I love to do anyway, and possibly making a lifestyle out of it? Life really does have a funny way flipping on its head, WHEN I create my own luck. My freshman year self would never even considered that this could become a post-grad opportunity — escaping the 9-5 toil with a scalable education lifestyle business, while having time to travel, and while doing work that doesn’t even feel like work. 
 
