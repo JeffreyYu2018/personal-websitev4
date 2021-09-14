@@ -5,7 +5,7 @@ date: 2021-08-15T16:00:01.713Z
 title_color: "#ffffff"
 comments: false
 tags:
-  - ""
+  - NycSu21
 ---
 The theme of this week is racing through the present at the expense of the future. What do I mean by this? Well, my original goal for this week was to plan for my gap year, and stick mostly to the reflective, thoughtful aspect of myself. Instead, I ended up living in the present. Almost the entire week, my days were filled with chaos and wonder.
 
@@ -81,27 +81,39 @@ My normally strict, organized schedule, which was supposed to be reserved totall
 
 Now that was a crazy day, diet, schedule, everything wise. But it didn’t stop there. On Friday I had a hangout with some old HLAB friends while one of them was visiting in the city. In what had been the culmination of multiple hours of research, we visited Arcadia Earth, another place on my list, a museum dedicated to environmental sustainability. It was great, for the message and mission, for the IG-worthy pictures, and for the bonding experience.
 
-\[pic of us 4 in the aqua exhibit]
-\[pic of us 4 on the chair]
-\[pic of us 3 in the VR exhibit]
-\[pic of us 3 in the trash exhibit]
-\[pic of us 4 in the nature exhibit]
-\[pic of Jeff at the “waste no food” exhibit]
+![](../uploads/081321_hlab_reunion_water.jpeg)
+
+![](../uploads/081321_hlab_reunion_chairs.jpeg)
+
+![](../uploads/081321_hlab_reunion_vr.jpeg)
+
+![](../uploads/081321_hlab_reunion_trash.jpeg)
+
+![](../uploads/081321_hlab_reunion_nature.jpeg)
+
+![](../uploads/081321_hlab_reunion_jeff_waste_no_food.jpeg)
 
 My nutritionist is going to groan, but we also took a few food pit stops. Cannolis and mango mango were involved.
 
-\[us at the cannoli place
-[us at mango mango]
+![](../uploads/081321_hlab_reunion_cannoli.jpeg)
 
-Additional food was present on Sunday, as I satiated my cravings for Japanese food with a multiple hour hunt for a Japanese grocery store with authentic onigiri. 
+![](../uploads/081321_hlab_reunion_mango_mango.jpeg)
 
-\[park ave]
-\[katagiri grocery outside]
-\[katagiri grocery inside]
-\[gonbei menu]
-\[sunshine market outside]
-\[onigiri photo all]
-\[onigii photo zoom in]
+Additional food was present on Sunday, as I satiated my cravings for Japanese food with a wild manhunt for a Japanese grocery store with authentic onigiri. 
+
+![](../uploads/081521_park_ave.jpeg)
+
+![](../uploads/081521_katagiri_grocery.jpeg)
+
+![](../uploads/081521_katagiri_grocery_shelves.jpeg)
+
+![all this place had was natto onigiri :(](../uploads/081521_katagiri_grocery_onigiri.jpeg "all this place had was natto onigiri :(")
+
+![](../uploads/081521_sunrise_mart.jpeg)
+
+![found this midtown place with salmon and tuna onigiri just in the nick of time!](../uploads/081521_onigiri_shelves.jpeg "found this midtown place with salmon and tuna onigiri just in the nick of time!")
+
+![](../uploads/081521_onigiri_at_home.jpeg)
 
 As shown in my previous blog posts, I’ve been chasing freedom and untetheredness, yet ironically been tethered in living in the moment to the point where I haven’t had time to think about the future. 
 
