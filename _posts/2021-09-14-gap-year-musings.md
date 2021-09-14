@@ -74,9 +74,11 @@ But it was the people that were truly memorable. Every Redditor I met had a dist
 
 ![area53, a hip laser tag area](../uploads/073121_redditors_laser_tag.jpeg "area53, a hip laser tag area")
 
-!["dumbo" -- what a gem of a neighborhood. and the view!](../uploads/073121_redditors_dumbo.jpeg "\\"dumbo\\" -- what a gem of a neighborhood. and the view!")
+!["dumbo" -- what a gem of a neighborhood. and the view!](../uploads/073121_redditors_dumbo.jpeg "\\\"dumbo\\\" -- what a gem of a neighborhood. and the view!")
 
 ![the redditors](../uploads/073121_redditors_group_pic.jpeg "the redditors")
+
+![the redditors (this time, with better lighting!)](../uploads/073121_redditors_dumbo_lighted.jpg "the redditors (this time, with better lighting!)")
 
 While I don't know if I'm going to hang out with this group of people again, and I'm not sure if I'm leaving the weekend with new friendships, I do know I'm leaving the day with a newfound appreciation for the people in the city I've called home.
 
