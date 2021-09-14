@@ -2,7 +2,7 @@
 layout: post
 title: sacrifice and success
 date: 2021-08-08T16:00:23.209Z
-header_feature_image: ../uploads/080621_ey_interns_last_day_sign.jpeg
+header_feature_image: ../uploads/080621_ey_interns_last_day_sign_cover_photo.jpeg
 title_color: "#ffffff"
 comments: false
 tags:
