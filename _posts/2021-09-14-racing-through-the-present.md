@@ -39,34 +39,45 @@ In a break from my diet, I even got a mini dessert. It was small enough that I c
 
 I also stopped in front of the Harry Potter store, which had a virtual queue of 360 people …
 
-\[Harry Potter store close up 1]
-\[Harry Potter store close up 2]
+![](../uploads/080921_harry_potter_store.jpeg)
+
+![](../uploads/080921_harry_potter_store_closeup.jpeg)
 
 And finally, made an active effort to head into my local Muji Chelsea and purchase an aroma diffuser.
 
-\[Muji outside]
-\[Muji aroma diffuser on legs]
-\[Muji aroma diffuser next to window - caption: my new aroma diffuser in action.]
+![](../uploads/080921_muji_outside.jpeg)
+
+![](../uploads/080921_muji_aroma_diffuser.jpeg)
+
+![](../uploads/080921_muji_diffuser_in_action.jpeg)
 
 The day wasn’t over though, as I headed into a Tous Les Jours bakery to work, only to discover I was surrounded by HMarts and Korean BBQs. My work session had unintentionally turned into my first time in KTown!
 
-\[KTown BBQ]
-\[Tous Les Jours dessert walls part 1]
-\[Tous Les Jours dessert walls part 2]
-\[Tour Les Jours sesame puff]
-\[Tour Les Jours blogging with food]
+![](../uploads/080921_ktown.jpeg)
+
+![](../uploads/080921_tous_les_jours_dessert_part_1.jpeg)
+
+![](../uploads/080921_tous_les_jours_desserts_part_two.jpeg)
+
+![](../uploads/080921_tous_les_jours_sesame_donut.jpeg)
+
+![](../uploads/080921_tous_les_jours_blogging.jpeg)
 
 It was deload week for my fitness program, which meant a week-long slackening of nutrition limits and easing of weightlifting loads, so my food diet did go off the rails a little bit. Froyo became the indulgence of choice for this week … more than once.
 
-\[16 handles froyo]
-\[pinkberry froyo]
+![](../uploads/081021_16_handles_froyo.jpeg)
+
+![](../uploads/081121_pinkberry_froyo.jpeg)
 
 My normally strict, organized schedule, which was supposed to be reserved totally for figuring out my life, also went off-track as well. I had a volleyball match, a date, but the rafting trip took the cake for most off the walls. On Thursday, I headed to the Poconos in upstate New York for a whitewater rafting trip with Ram, one of my fellow interns. If EY wouldn’t give us Disney, we would go to our own version of Disney ourselves. 
 
-\[rafting sushi - caption: some pre-rafting sushi. just alright.]
-\[ram eating food]
-\[Jeff and ram at the rafting place]
-\[mamouns] 
+![pre-rafting sushi was aight](../uploads/081221_rafting_sushi.jpeg "pre-rafting sushi was aight")
+
+![company was better](../uploads/081221_ram_meal.jpeg)
+
+![](../uploads/081221_rafting_ram_jeff.jpeg)
+
+![](../uploads/081221_rafting_mamouns.jpeg)
 
 Now that was a crazy day, diet, schedule, everything wise. But it didn’t stop there. On Friday I had a hangout with some old HLAB friends while one of them was visiting in the city. In what had been the culmination of multiple hours of research, we visited Arcadia Earth, another place on my list, a museum dedicated to environmental sustainability. It was great, for the message and mission, for the IG-worthy pictures, and for the bonding experience.
 
