@@ -42,6 +42,8 @@ The other thing I like about WeWork is that it shows the non-highlights of my li
 
 For example, ever since I started tutoring, I’ve been working full-time on weekends, like from 12pm to 9pm this past Saturday. Sometimes I have sad moments that I try to block out, like when no one showed up to my comedy improv class show on Sunday. 
 
+![our comedy improv class show](../uploads/082921_comedy_improv_show.jpeg "our comedy improv class show")
+
 But it’s in these moments I try to stay positive, not focus on them, and try to move on rather than commiserate. For the full-time work on weekends, I remind myself it’s by my personal choice to move most of my hours then, and I’m lucky that I don’t have to work 40 hours. For the comedy improv class show, I reason it out and realize that it was pretty far from my Yale friends to come for just an hour long show, and my NYC friends were busy with other things.
 
 I really try to adopt the mentality that “one door closing opens up another” to help me reframe negative moments. Like when I found out that my comedy improv class this fall had filled up, I took a storytelling class through the Magnet Theater instead. Or when I failed to find a wide angle lens in time to test out my new tennis app SwingVision, but ended up getting into a fantastic conversation with a Best Buy associate and resolving the dilemma over which camera lens to buy. Or not being able to go abroad for the spring, but finding out about the Schwartzmann Scholar program and how a lack fo Chinese in-person experience could actually help my application.
