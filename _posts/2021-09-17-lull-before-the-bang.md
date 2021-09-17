@@ -48,7 +48,7 @@ I really try to adopt the mentality that “one door closing opens up another”
 
 ![Super cool stats through SwingVision, my new tennis app](../uploads/082721_swing_vision_stats.png "Super cool stats through SwingVision, my new tennis app")
 
-![I love how detailed and comprehensive the stats are](../uploads/082721_swingvision_stats_2.png "I love how detailed and comprehensive the stats are")
+![I love how detailed and comprehensive the stats are!](../uploads/082721_swingvision_stats_2.png "I love how detailed and comprehensive the stats are!")
 
 With life changes like WeWork, It was refreshing to see my fall lifestyle come to life before my eyes, and figuring out how roadblocks in the present could benefit me down the road. 
 
