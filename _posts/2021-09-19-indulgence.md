@@ -10,7 +10,7 @@ tags:
 ---
 Indulgence. A week spent with family, food, and friends. Putting work aside for family. Throwing out my diet out the window. Having deep conversations with and partying with close friends. There were too many moments for the highlight reel to count. I know this week won’t be representative of what my gap year looks like, but I sure as hell hope it does. This one sets the bar.
 
-A second a day for this week: \[One Second a Day for a Week video YouTube linked here]
+\[One Second a Day for a Week YouTube video -- coming soon!]
 
 I hit the ground running. Moving stuff from my Chelsea 1-bed apartment into my new studio in Greenwich Village on Monday was an all day affair. But by Tuesday morning, after I dropped off my keys, and rolled my suitcase down the street, it really felt like I was traveling to a new place again. Almost like the feeling I had when I came to New York for the first time. A new gap year, a new frontier.
 
@@ -98,7 +98,7 @@ I’m not a big party person, if you haven’t guessed already. In fact, I don�
 
 But this year, after a desolate year at home, I decided to say screw it, and take the plunge. So I booked an adventure park called Area53 to celebrate, and invited people to come.
 
-The weeks leading up to the party were tumultuous. I sent out about a dozen invites, and only expected 2-4 people to actually show up. I had extremely low expectations - who would even be willing to make the effort? But I was touched when I had not 2, not 3, not 4, but FIVE* people come out that night to celebrate. Two of them were even buddies back at Yale who took the 2h+ commute to make it to the park. And that feeling of belonging was probably the best birthday gift I could have ever gotten. *\*My friend Meag also would’ve come, but she mixed up the dates.* 
+The weeks leading up to the party were tumultuous. I sent out about a dozen invites, and only expected 2-4 people to actually show up. I had extremely low expectations - who would even be willing to make the effort? But I was touched when I had not 2, not 3, not 4, but FIVE *people come out that night to celebrate. Two of them were even buddies back at Yale who took the 2h+ commute to make it to the park. And that feeling of belonging was probably the best birthday gift I could have ever gotten.* \*My friend Meag also would’ve come, but she mixed up the dates.\* 
 
 I spent the entire day preparing for it. Namely, I went to trader joes to carefully curate a list of 21 snacks. Those damn snacks had tempted me for the past few weeks each time I passed through the store, and if I were to cheat on my diet for a day, I would go all out.
 
