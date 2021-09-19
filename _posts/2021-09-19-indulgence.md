@@ -10,6 +10,8 @@ tags:
 ---
 Indulgence. A week spent with family, food, and friends. Putting work aside for family. Throwing out my diet out the window. Having deep conversations with and partying with close friends. There were too many moments for the highlight reel to count. I know this week won’t be representative of what my gap year looks like, but I sure as hell hope it does. This one sets the bar.
 
+A second a day for this week: \[One Second a Day for a Week video YouTube linked here]
+
 I hit the ground running. Moving stuff from my Chelsea 1-bed apartment into my new studio in Greenwich Village on Monday was an all day affair. But by Tuesday morning, after I dropped off my keys, and rolled my suitcase down the street, it really felt like I was traveling to a new place again. Almost like the feeling I had when I came to New York for the first time. A new gap year, a new frontier.
 
 Tuesday (my biological bday) was when things really kicked off though. Beyond the heartwarming stream of birthday wishes to me throughout the day, it was a crazy afternoon filled with my greatest passion: tennis. Specifically, 2 and a half HOURS of tennis, burning over a thousand calories.
@@ -82,11 +84,11 @@ After that packed morning, I was on a bus back into the city. But my day wasn’
 
 You see, Friday was the hyped opening night for one of the most important movies of the year to the Asian American community: Shang Chi and the Legend of the Ten Rings. For those of you who don’t know, Shang Chi is the first Marvel movie to headline an Asian lead superhero. Not only is it historically landbreaking in terms of AA representation in Hollywood, but it’s also a really amazing movie with terrific Rotten Tomatoes ratings. And since I was in NYC, I could see it on the big screens.
 
-\[Jeff at the Shang Chi premiere sign]
+![](../uploads/090321_jeff_shangchi_premiere.jpeg)
 
 Oh, and when I say the big screens, I mean the REALLY big screens. As in, the absolutely huge IMAX screen at AMC Lincoln Square. The one that towers and is the largest one in North America. Here’s a scale diagram \[link here] to give you a sense of its size.
 
-\[Shang Chi movie pic]
+![](../uploads/090421_shangchi_movie_clip.png)
 
 It was a pretty great movie overall. Not mind-blowing like endgame, but still pretty darn good. 
 
@@ -96,74 +98,60 @@ I’m not a big party person, if you haven’t guessed already. In fact, I don�
 
 But this year, after a desolate year at home, I decided to say screw it, and take the plunge. So I booked an adventure park called Area53 to celebrate, and invited people to come.
 
-The weeks leading up to the party were tumultuous. I sent out about a dozen invites, and only expected 2-4 people to actually show up. I had extremely low expectations - who would even be willing to make the effort? But I was touched when I had not 2, not 3, not 4, but FIVE* people come out that night to celebrate. Two of them were even buddies back at Yale who took the 2h+ commute to make it to the park. And that feeling of belonging was probably the best birthday gift I could have ever gotten. 
-
-* \*My friend Meag also would’ve come, but she mixed up the dates. 
+The weeks leading up to the party were tumultuous. I sent out about a dozen invites, and only expected 2-4 people to actually show up. I had extremely low expectations - who would even be willing to make the effort? But I was touched when I had not 2, not 3, not 4, but FIVE* people come out that night to celebrate. Two of them were even buddies back at Yale who took the 2h+ commute to make it to the park. And that feeling of belonging was probably the best birthday gift I could have ever gotten. *\*My friend Meag also would’ve come, but she mixed up the dates.* 
 
 I spent the entire day preparing for it. Namely, I went to trader joes to carefully curate a list of 21 snacks. Those damn snacks had tempted me for the past few weeks each time I passed through the store, and if I were to cheat on my diet for a day, I would go all out.
 
-\[Trader joes pic] 
+![](../uploads/090421_tjs_snack_shopping.jpeg)
 
 Once we got to the venue, Area53, there were so many things to do. There was rock climbing, 
 
-\[Danielle rock climbing]
+![](../uploads/090421_danielle_rock_climbing.png)
 
 Ropes course, 
 
-\[Mai on ropes course]
+![](../uploads/090421_mai_ropes_course.png)
 
 zip lining, 
 
-\[ziplining]
+![](../uploads/090421_ziplining.png)
 
 battle boarding, 
 
-\[Ram battleboarding]
+![](../uploads/090421_jeff_ram_battleboarding.png)
 
 And more!
 
 But that wasn’t all. We also did the ProZD 21 snacks challenge and got it all on tape, and shoveled down a melted ice cream cake.
 
-\[21 snacks challenge - caption: label each person in the pic]
+![From left to right: Audrey (DPops co-pres), Danielle (YA class), Yours Truly, Mai (HLAB SA), Ram (EY internship)](../uploads/090421_prozd_21_snacks.png "From left to right: Audrey (DPops co-pres), Danielle (YA class), Yours Truly, Mai (HLAB SA), Ram (EY internship)")
 
 Above all, though, the best gift was the fact that everyone showed up. Seeing everyone from completely different parts of my life - my internship, my clubs, my classes, my teaching abroad - together … it was beautiful. 
 
 Our time at the park was over before I knew it, and Ram Mai and Audrey had to go soon early after. But someone was \~now legal\~, I wanted to go out. Amazingly, my friend Danielle also did, so we went to a rooftop bar.
 
-\[Rooftop bar view]
+![](../uploads/090421_rooftop_bar_view.png)
 
 In one of the biggest twists of the night, we ended up meeting a random guy and a girl in line in their 30s and 40s who we hung out with and celebrated. It was crazy - we were all dancing, but also chatting about work and life in the city, and they were even buying bday drinks and shots for me. I had a Long Island iced tea, a few new cocktails … it was wild. But let me tell you about these guys. The dude was a promoter and member of the NFL and snuck us into all the rooftop bars past the lines by bribing the doorsmen with free giants tickets, and he ALSO invited us to his private yacht party with free drinks on Sept 17, two weekends from now. Like what??
 
-\[the club fireworks]
+![](../uploads/090421_fireworks_club.png)
 
 Throughout the night, I was in that happy Goldilocks range of buzzed and tipsy but not vomit level. Danielle was at her limit tho and I paced myself to make sure she got back safe, as a good friend and host would do. Eventually, we got home and then passed out at 4 am.
 
-\[Jeff and Danielle at 2:28 am] 
-
-The aftermath
+![](../uploads/090421_jeff_danielle_2am.jpeg)
 
 Danielle and I only ended up getting like 3 hours of sleep because we had to get up at 7 am for her to catch her train. Fighting through the tiredness and hangover, we travelled together on the subway, got her a bagel, and dropped her off on the Metro North back to New Haven.
 
-\[Jeff and Danielle hungover]
+![](../uploads/090421_jeff_danielle_hungover.png)
 
 Dehydrated and sleepy, I went back home and promptly passed out until 1 pm. My house was an absolute mess, my schedule was a mess, and I had to tutor. But I was happy.
 
 I knew after waking up after such a great happy night though, I was gonna go through a mini depressive period on Sunday as the serotonin wore off. And sure enough I did, and it sucked. But as I headed to my nearest WeWork to get some tutoring work done, and distract my own on more productive things.
 
-\[14th street picture]
+![](../uploads/090521_14th_st.png)
 
 But then I got a text from Audrey.
 
-\[screenshot of text from Audrey]
+![](../uploads/090521_audrey_text.png)
 
-I was depressed, but after Audrey said she felt the same way, I could feel myself more or less snap out of it. I spent a lesson teaching the kids, and felt my social battery recovering. I wasn’t alone. I had a group of close friends. 
-
-One-Sec-A-Day-For-A-Week Video
-
-You might be reading this section and be thinking, whoa Jeff, what is this? Well, I might have mentioned this earlier, but for my gap year, I’m starting a one-second-a-day-for-a-year-vlogging challenge. The goal is to capture all the moments from this year on a new medium, video. To keep myself accountable, I’ll be editing it on a weekly basis and compiling it together at the end of the year. And I’m excited to announce, the first week of video is done!
-
-You can come live out a second from each day this week on my YouTube channel:
-
-\[post link to 7 second version here]
-
-I’ll be doing this every week to complement my blog posts for the entirety of my gap year, so stay tuned!
+I was depressed, but after Audrey said she felt the same way, I could feel myself more or less snap out of it. I spent a lesson teaching the kids, and felt my social battery recovering. I wasn’t alone. I had a group of close friends.
