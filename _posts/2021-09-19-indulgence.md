@@ -10,7 +10,7 @@ tags:
 ---
 Indulgence. A week spent with family, food, and friends. Putting work aside for family. Throwing out my diet out the window. Having deep conversations with and partying with close friends. There were too many moments for the highlight reel to count. I know this week won’t be representative of what my gap year looks like, but I sure as hell hope it does. This one sets the bar.
 
-\[One Second a Day for a Week YouTube video -- coming soon!]
+<div class="video-box"><iframe width="560" height="315" src="https://www.youtube.com/embed/uBga-Z2mpGI?rel=0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe></div>
 
 I hit the ground running. Moving stuff from my Chelsea 1-bed apartment into my new studio in Greenwich Village on Monday was an all day affair. But by Tuesday morning, after I dropped off my keys, and rolled my suitcase down the street, it really felt like I was traveling to a new place again. Almost like the feeling I had when I came to New York for the first time. A new gap year, a new frontier.
 
