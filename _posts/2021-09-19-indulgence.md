@@ -2,7 +2,7 @@
 layout: post
 title: indulgence
 date: 2021-09-05T16:00:35.241Z
-header_feature_image: ../uploads/090421_prozd_21_snacks.png
+header_feature_image: ../uploads/090421_prozd_21_snacks_cover_photo.png
 title_color: "#ffffff"
 comments: false
 tags:
