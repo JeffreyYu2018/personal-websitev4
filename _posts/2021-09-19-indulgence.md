@@ -40,37 +40,43 @@ But the hangout with Ming wasn’t over. No, we would get up just a few hours la
 
 A flash flood (Hurricane Ida) cancelled volleyball playoffs that night, but it was a much needed respite after a crazy day of walking all around the tennis grounds. And by crazy, I mean 30k steps crazy.
 
-\[Health app- 29,214 steps]
+![](../uploads/090121_health_app_29k_steps.png)
 
 Luckily, I didn’t have to deal with the chaos Hurricane Ida had wrought over the city, and instead spent the next two days at home in upstate New York. There were logistical reasons — picking up my drivers license, credit card, winter clothes, etc. — but there was a deeper reason: celebrating my bday with my family, and my grandparents, who were now back in the US from China.
 
-\[Jeff on the bus - front facing view]
-\[Jeff on the bus looking back view]
+![on the bus ride home](../uploads/090221_bus_home_jeff.png)
+
+![](../uploads/090221_bus_home_front.png)
 
 It was the busiest 24 hours home in my life. I helped my grandparents with their tech issues, ate a ton of good Chinese food, and had a nice peach cake from Wegmans. A sweet homestay.
 
-\[pic of family at the dinner table]
+![](../uploads/090221_bday_cheers.png)
 
 With an insufficient amount of sleep, I was right back awake Friday morning. I was poised to return to NYC in the afternoon, but first, we squeezed in a family trip to our land.
 
-\[car ride to land]
-\[Jeff and grandparents hiking through land]
-\[Jeff looking up at the trees]
+![](../uploads/090321_car_ride_to_land.png)
+
+![](../uploads/090321_jeff_grandparents_hiking.png)
+
+![](../uploads/090321_jeff_looking_at_trees.jpeg)
 
 The ginseng plants I had helped plant a few years ago were starting to flower …
 
-\[ginseng plant close up]
+![](../uploads/090321_ginseng_close_up.jpeg)
 
 And Mom, as she does, took the opportunity for a family photo op.
 
-\[dad, grandma, grandpa, mom - caption: the fam]
-\[mom taking a pic of my dad - caption: mom and my silly dad]
-\[staring up at just the trees]
+![the fam](../uploads/090321_the_fam_on_land.jpeg "the fam")
+
+![mom and my silly pops](../uploads/090321_mom_and_dad_being_silly.png "mom and my silly pops")
+
+![](../uploads/090321_land_trees_only.jpeg)
 
 The timing of the visit to the land was perfect though, as it was harvest season!
 
-\[Jeff picking up corn]
-\[Jeff picking up apples]
+![](../uploads/090321_jeff_corn_picking.jpeg)
+
+![](../uploads/090321_jeff_fruit_harvest.jpeg)
 
 After that packed morning, I was on a bus back into the city. But my day wasn’t over — far from it, actually. I passed out the entirety of the ride back, because I knew I would need the energy.
 
