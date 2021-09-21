@@ -32,9 +32,9 @@ Plus, since it was a beautiful day, the views weren’t that bad …
 
 And neither was the company that I hung out with that day :)
 
-!["company" pun not intended](../uploads/071421_ey_office_interns_chelsea.jpeg "\"company\" pun not intended")
+!["company" pun not intended](../uploads/071421_ey_office_interns_chelsea.jpeg "\\"company\\" pun not intended")
 
-Post-Chelsea meetup work was a flurry of activity, consisting of changing out of work clothes, putting my dry-ice sealed meals into the freezer. Why was I in such a rush, you my ask? Well, because I had something new and exciting for the first time in a while … a social volleyball league! \[link to NYC social here]
+Post-Chelsea meetup work was a flurry of activity, consisting of changing out of work clothes, putting my dry-ice sealed meals into the freezer. Why was I in such a rush, you my ask? Well, because I had something new and exciting for the first time in a while … [a social volleyball league!](https://nycsocial.com/leagues/volleyball/) 
 
 ![](../uploads/071421_nyc_volo_riverside.jpeg)
 
@@ -46,7 +46,7 @@ On the walk to the courts (during which I got promptly lost), I was nervous abou
 
 Things got really busy on Thursday. Not only did I start getting a lot of things to do at work, but my mind was pre-occupied with what would happen *after* work.
 
-Normally don't touch upon dating that much in these blogs, but I’ll offer a small glimpse into what happened that evening. First of all, yes, I’ve been going on dates throughout all these blogs, although I’ve omitted pictures of the girls out of confidentiality, of course. Basically, my strategem for dating has been to visit places on my list of 101 things to do that I’ve never been to. It’s not only fun for me, but it gives an excuse to bring my date to some really cool places in the city. For today, I visited the Vessel, a spiraling honeycomb structure in Hudson Yards, a self-proclaimed blueprint for an idealistic city. The neighborhood features shops, parks, eco-friendly office buildings, but this public structure in the center is the most iconic.
+Normally don't touch upon dating that much in these blogs, but I’ll offer a small glimpse into what happened that evening. First of all, yes, I’ve been going on dates throughout all these blogs, although I’ve omitted pictures of the girls out of confidentiality, of course. Basically, my strategy for dating has been to visit places on my list of 101 things to do that I’ve never been to. It’s not only fun for me, but it gives an excuse to bring my date to some really cool places in the city. For today, I visited the Vessel, a spiraling honeycomb structure in Hudson Yards, a self-proclaimed blueprint for an idealistic city. The neighborhood features shops, parks, eco-friendly office buildings, but this public structure in the center is the most iconic.
 
 ![](../uploads/071521_vessel_looking_up.jpeg)
 
@@ -68,13 +68,13 @@ It was a brilliantly sunny, but hot, day, and after a truncated work week, I bik
 
 ![](../uploads/071621_wash_sq_park.jpeg)
 
-The group of interns wasn’t that hard to fine. There were hundreds of interns in the EY office alone, and the group of people sporting yellow and black EY swag gave away the location.
+The group of interns wasn’t that hard to find. There were hundreds of interns in the EY office alone, and the group of people sporting yellow and black EY swag gave away the location.
 
 ![](../uploads/071621_wash_sq_park_interns.jpeg)
 
 I’d love to lie and say that the next two hours were a blast, but to be honest, they were more of a sweaty mess. The riddles and clues were really cool and challenging, to my surprise, so it wasn’t that the activity was organized badly. Moreso, it was that we were wandering around in the 90+ degree NYC summer heat, which sapped our energy pretty closely. It *was* still fun to converse and bond — well, bond as much as you could with strangers in two hours — but the walking and thinking burned us out quickly. It got to the point where we had half an hour left and had only done 33 percent of all the riddles, and decided to just go to the BBQ place to chill. 
 
-That BBQ place was NOT what I expected. After a long day of trudging in the heat, I was expecting a nice air-conditioned sit-down meal with a speech or so. You know, the perfect thing for a group of interns with tired feet. But instead, the food ended up being a standing “apps and drinks” type of social. In other words, a typical networking event. The food was alright, and it was nice to stroll around and talk to new groups of interns while munching on hors d’ouevres. It gave me “club” and “college party” vibes for the first time in years … I hadn’t been in that type of social situation in forever. 
+That BBQ place was NOT what I expected. After a long day of trudging in the heat, I was expecting a nice air-conditioned sit-down meal with a speech or so. You know, the perfect thing for a group of interns with tired feet. But instead, the food ended up being a standing “apps and drinks” type of social. In other words, a typical networking event. The food was alright, and it was nice to stroll around and talk to new groups of interns while munching on hors d’oeuvres. It gave me “club” and “college party” vibes for the first time in years … I hadn’t been in that type of social situation in forever. 
 
 ![](../uploads/071621_intern_social.jpeg)
 
@@ -86,9 +86,9 @@ One of the things I won't forget from Friday though was one of the best feelings
 
 After spending a year at home by myself, isolated, I couldn’t help but get a warm fuzzy feeling in my stomach from being included in all of these events. I felt valued, and socially belonging. I guess it’s a byproduct of me being inclusive myself in terms of inviting people to events, but still, it was a completely unexpected gift for me on that day.
 
-Not all my actions led to such good outcomes though. Late that night, I headed to Meg’s house for another hangout. I won’t go into too much detail, but I’ve realized I’m definitely not a “nighttime going out” person in a traditional sense. To be honest, it wasn’t that fun to go back to my freshman year lifestyle after a 2.5 hiatus. Upon reflection, I’ve discovered that I’m definitely more of a sober activity person than a drunk club and bar hopper. I like the fullness and clarity of experience that comes with sobriety. It makes me feel truly alive to jump out of a plane with strangers, rather than wait in a noisy, crowded line at 1 am to a club I don’t really want to go to. Maybe that makes me the outlier to my age group, that “going out” on Friday and Saturday nights in a traditional sense never really appealed to me. But what’s definitely true is that it’s an indicator of how much I’ve changed since freshman year. 
+Not all my actions led to such good outcomes though. Late that night, I headed to Meag’s house for another hangout. I won’t go into too much detail, but I’ve realized I’m definitely not a “nighttime going out” person in a traditional sense. To be honest, it wasn’t that fun to go back to my freshman year lifestyle after a 2.5 year hiatus. Upon reflection, I’ve discovered that I’m definitely more of a sober activity person than a drunk club and bar hopper. I like the fullness and clarity of experience that comes with sobriety. It makes me feel truly alive to jump out of a plane with strangers, rather than wait in a noisy, crowded line at 1 am to a club I don’t really want to go to. Maybe that makes me the outlier to my age group, that “going out” on Friday and Saturday nights in a traditional sense never really appealed to me. But what’s definitely true is that it’s an indicator of how much I’ve changed since freshman year. 
 
-That being said I, what HAS appealed to me is having something to do on late Friday and Saturday nights. And nothing confirmed it more than what happened the next day, on a rainy Saturday afternoon.
+That being said, what HAS appealed to me is having something to do on late Friday and Saturday nights. And nothing confirmed it more than what happened the next day, on a rainy Saturday afternoon.
 
 ![](../uploads/071721_rainy_saturday.jpeg)
 
@@ -96,7 +96,7 @@ I didn't have any plans that day, and thought it would just be some time to myse
 
 My old skydiving group set up something spontaneously that day, and within an hour of planning nothing, we were heading to a board game cafe together. Why board games, you might ask? 
 
-There's this board game cafe in the r/nycmeetups subreddit that is a semi-meme, called Hex & Co. There are weekly meetups that happen there, and while I never went to the recurring one, I thought it'd be cool to check out and burn a few hours on a rainy day.
+There's this board game cafe in the r/nycmeetups subreddit that is a semi-meme, called [Hex & Co](http://www.hexnyc.com/). There are weekly meetups that happen there, and while I never went to the recurring one, I thought it'd be cool to check out and burn a few hours on a rainy day.
 
 ![jeff, das, sarah, and sarah's friend guy](../uploads/071721_hex_and_co_hangout.jpeg "jeff, das, sarah, and sarah's friend guy")
 
@@ -104,7 +104,7 @@ We played Trivial Pursuit and Apples to Apples, and it was a chill, fun social t
 
 Sure enough, when I arrived at Sutton East Tennis Courts, there they were, hanging out in the lobby and rearing to go. They even bought day passes to play! Das had to leave early, but as Ming and I played, Sarah and Guy alternated between hitting on their own on an adjoining court and watching the match between us. It felt so cool to have friends over engaging in a sport I had a major passion in, and even semi-cheering me on for a match, even if it was a friendly. After Ming had to retire early from a lasting scooter injury earlier that day, I used the time to show Guy some serves and groundstrokes, in a callback to my tennis clinic days. Skill disparities aside, it was nice to share my passion for the sport with other people. 
 
-But it was what happened that night that solidified me as a nighttime activity guy. Post-tennis, I offered for all of us to grab ice cream, and while Ming had to go home to recover, the trio of us ended up walking around for a solid hour in the rain trying to find a place that was open. Not what I was expecting, but hey, we all wanted to continue hanging out. It wasn't pleasant to get soaked, but hey, huddling under a single umbrella in the pouring rain builds character and camraderie! 
+But it was what happened that night that solidified me as a nighttime activity guy. Post-tennis, I offered for all of us to grab ice cream, and while Ming had to go home to recover, the trio of us ended up walking around for a solid hour in the rain trying to find a place that was open. Not what I was expecting, but hey, we all wanted to continue hanging out. It wasn't pleasant to get soaked, but hey, huddling under a single umbrella in the pouring rain builds character and camaraderie! 
 
 Luckily, we DID manage to find a Baskin Robbins open that late, and we could finally sit down and shelter from the elements outside. 
 
