@@ -70,7 +70,7 @@ It was deload week for my fitness program, which meant a week-long slackening of
 
 ![](../uploads/081121_pinkberry_froyo.jpeg)
 
-My normally strict, organized schedule, which was supposed to be reserved totally for figuring out my life, also went off-track as well. I had a volleyball match, a date, but the rafting trip took the cake for most off the walls. On Thursday, I headed to the Poconos in upstate New York for a whitewater rafting trip with Ram, one of my fellow interns. If EY wouldn’t give us Disney, we would go to our own version of Disney ourselves. 
+My normally strict, organized schedule, which was supposed to be reserved totally for figuring out my life, also went off-track as well. I had a volleyball match, a date, but the rafting trip took the cake for most off the walls. On Thursday, I headed to the Poconos in upstate New York for a [whitewater rafting](https://www.poconowhitewater.com/family-style-whitewater-rafting/) trip with Ram, one of my fellow interns. If EY wouldn’t give us Disney, we would go to our own version of Disney ourselves. 
 
 ![pre-rafting sushi was aight](../uploads/081221_rafting_sushi.jpeg "pre-rafting sushi was aight")
 
@@ -80,7 +80,7 @@ My normally strict, organized schedule, which was supposed to be reserved totall
 
 ![](../uploads/081221_rafting_mamouns.jpeg)
 
-Now that was a crazy day, diet, schedule, everything wise. But it didn’t stop there. On Friday I had a hangout with some old HLAB friends while one of them was visiting in the city. In what had been the culmination of multiple hours of research, we visited Arcadia Earth, another place on my list, a museum dedicated to environmental sustainability. It was great, for the message and mission, for the IG-worthy pictures, and for the bonding experience.
+Now that was a crazy day, diet, schedule, everything wise. But it didn’t stop there. On Friday I had a hangout with some old HLAB friends while one of them was visiting in the city. In what had been the culmination of multiple hours of research, we visited [Arcadia Earth](https://www.arcadia-earth.com/), another place on my list, a museum dedicated to environmental sustainability. It was great, for the message and mission, for the IG-worthy pictures, and for the bonding experience.
 
 ![](../uploads/081321_hlab_reunion_water.jpeg)
 
