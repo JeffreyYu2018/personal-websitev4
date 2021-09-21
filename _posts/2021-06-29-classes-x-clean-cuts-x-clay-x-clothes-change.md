@@ -38,7 +38,7 @@ It's funny how I met him - as I stepped up the stairs, I had to sidestep two guy
 
 ![fresh cut! took me a while to get used to it, but i'm really diggin it now](../uploads/062321_new_haircut.jpeg "fresh cut! took me a while to get used to it, but i'm really diggin it now")
 
-It was surprisingly tough to fit something as trivial as a haircut into my schedule though. Weekday evenings, I'm soooo busy. Sometimes after working out and finishing errands and eating dinner, I'm not done until like 9 pm. Yet, on those nights, I still push myself to go out, like on Thursday, when at 9 pm I decided to take a train up to midtown in a 24h cafe and chip away at my blogs. It was a nostalgia trip--- listened to radwimps and over-romanticized my experience here in the Big Apple.
+It was surprisingly tough to fit something as trivial as a haircut into my schedule though. Weekday evenings, I'm soooo busy. Sometimes after working out and finishing errands and eating dinner, I'm not done until like 9 pm. Yet, on those nights, I still push myself to go out, like on Thursday, when at 9 pm I decided to take a train up to midtown in a 24hr cafe and chip away at my blogs. It was a nostalgia trip, listening to radwimps and over-romanticizing my experience here in the Big Apple.
 
 ![NY, the city that never sleeps.](../uploads/062421_midtown_nighttime_blogging.jpeg "NY, the city that never sleeps.")
 
@@ -46,11 +46,11 @@ It was surprisingly tough to fit something as trivial as a haircut into my sched
 
 This type of exploration might also look more organized, like when I traveled halfway across the city to play on red clay tennis courts. 
 
-![The Sutton neighborhood.](../uploads/062521_sutton_east_tennis_courts_neighborhood.jpeg "The Sutton neighborhood.")
+![The Sutton East neighborhood.](../uploads/062521_sutton_east_tennis_courts_neighborhood.jpeg "The Sutton East neighborhood.")
 
 The hitting session all came together when a guy named Ming, who graduated from Harvard, reached out to me on FB. I had only posted once in that group chat, and so I was surprised, because I wasn't expecting much from it. But, I was so so glad he did, because apparently we already had a really good mutual friend in one of my old bboy buddies, and I ended up having the time of my life that Friday evening.
 
-What made it so special? I didn't find out until that morning that the courts weren't just normal tennis courts ... they were INDOOR RED CLAY courts. yes, you read that right, real, sliding, dirty, red clay.
+What made it so special? I didn't find out until that morning that the courts weren't just normal tennis courts ... they were [INDOOR RED CLAY courts](https://suttoneasttennis.com/). yes, you read that right, real, sliding, dirty, red clay.
 
 ![a tennis bubble in an upscale neighborhood?](../uploads/062521_sutton_east_bubble.jpeg "a tennis bubble in an upscale neighborhood?")
 
@@ -88,7 +88,7 @@ Overall, it was a great time visiting someplace new with a great friend and good
 
 ![jeff + meg, taiwan power squad](../uploads/062621_gov_island_meg_jeff.jpeg "jeff + meg, taiwan power squad")
 
-The crazy thing about new york is how much stuff you can do to extend a previously basic plan. I thought gov island would be it, but we both decided to say fuck it, let's get some food and dessert. So we stopped by a place called golden diner which was apparently really well-renowned, and got some food. Walking around gov island in a sunstorm does a number for your appetite.
+The crazy thing about new york is how much stuff you can do to extend a previously basic plan. I thought gov island would be it, but we both decided to say fuck it, let's get some food and dessert. So we stopped by a place called [golden diner](https://www.goldendinerny.com/) which was apparently really well-renowned, and got some food. Walking around gov island in a sunstorm does a number for your appetite.
 
 ![for me: breakfast sandwich on milk bun (taiwanese x western fusion), for meg, chicken katsu sandwich (japanese x western fusion) yum!!](../uploads/062621_golden_diner_meg_jeff_food.jpeg "for me: breakfast sandwich on milk bun (taiwanese x western fusion), for meg, chicken katsu sandwich (japanese x western fusion) yum!!")
 
