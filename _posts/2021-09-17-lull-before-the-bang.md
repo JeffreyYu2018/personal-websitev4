@@ -8,7 +8,7 @@ comments: false
 tags:
   - NycSu21
 ---
-If there was one event to represent this week, it would be signing up for a WeWork subscription. Productivity came front and foremost. I’m not the type of person to spend money on materialistic joys like nice sports cars, super fancy collectibles, etc. it’s not the way I was raised. That being said, I’ve learned as I’ve matured that time is money, and co-working spaces offer a lot of “soft” value with real ROIs. Here’s an entry from my journal rationalizing the purchase out.
+If there was one event to represent this week, it would be signing up for a [WeWork subscription](https://www.wework.com/solutions/wework-all-access). Productivity came front and foremost. I’m not the type of person to spend money on materialistic joys like nice sports cars, super fancy collectibles, etc. it’s not the way I was raised. That being said, I’ve learned as I’ve matured that time is money, and co-working spaces offer a lot of “soft” value with real ROIs. Here’s an entry from my journal rationalizing the purchase out.
 
 > (1) All of my work currently is remote, so I have the flexibility to work anywhere 
 >
@@ -22,7 +22,7 @@ If there was one event to represent this week, it would be signing up for a WeWo
 >
 > (6) I feel much more productive within a WeWork, and it improves the quality of my lifestyle 
 
-Getting a WeWork subscription was not that different from getting a CitiBike membership. It saves time, makes things more convenient, and allows me to focus on the more important work. It also makes me more happy, and happiness is priceless. Not to mention, sometimes with these kinds of purchases, you get other unexpected benefits, like a free upgrade to Lyft Pink and 15% off all rides! 
+Getting a WeWork subscription was not that different from getting a [CitiBike membership](https://www.citibikenyc.com/pricing/annual). It saves time, makes things more convenient, and allows me to focus on the more important work. It also makes me more happy, and happiness is priceless. Not to mention, sometimes with these kinds of purchases, you get other unexpected benefits, like a free upgrade to [Lyft Pink](https://www.lyft.com/blog/posts/introducing-lyft-pink) and 15% off all rides! 
 
 It was a big decision, but the moment I stepped into a WeWork for the first time on Tuesdays, all my doubts disappeared. The amenities, the atmosphere, the location … it was the perfect workspace for me. 
 
@@ -46,7 +46,7 @@ For example, ever since I started tutoring, I’ve been working full-time on wee
 
 But it’s in these moments I try to stay positive, not focus on them, and try to move on rather than commiserate. For the full-time work on weekends, I remind myself it’s by my personal choice to move most of my hours then, and I’m lucky that I don’t have to work 40 hours. For the comedy improv class show, I reason it out and realize that it was pretty far from my Yale friends to come for just an hour long show, and my NYC friends were busy with other things.
 
-I really try to adopt the mentality that “one door closing opens up another” to help me reframe negative moments. Like when I found out that my comedy improv class this fall had filled up, I took a storytelling class through the Magnet Theater instead. Or when I failed to find a wide angle lens in time to test out my new tennis app SwingVision, but ended up getting into a fantastic conversation with a Best Buy associate and resolving the dilemma over which camera lens to buy. Or not being able to go abroad for the spring, but finding out about the Schwartzmann Scholar program and how a lack fo Chinese in-person experience could actually help my application.
+I really try to adopt the mentality that “one door closing opens up another” to help me reframe negative moments. Like when I found out that my comedy improv class this fall had filled up, I took a storytelling class through the Magnet Theater instead. Or when I failed to find a wide angle lens in time to test out my new tennis app [SwingVision](https://swing.tennis/), but ended up getting into a fantastic conversation with a Best Buy associate and resolving the dilemma over which camera lens to buy. Or not being able to go abroad for the spring, but finding out about the [Schwartzmann Scholars](https://www.schwarzmanscholars.org/) program and how a lack fo Chinese in-person experience could actually help my application.
 
 ![Super cool stats through SwingVision, my new tennis app](../uploads/082721_swing_vision_stats.png "Super cool stats through SwingVision, my new tennis app")
 
