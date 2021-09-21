@@ -7,8 +7,9 @@ title_color: "#ffffff"
 comments: false
 tags:
   - NycFa21
+  - GapYr21-22
 ---
-Indulgence. A week spent with family, food, and friends. Putting work aside for family. Throwing out my diet out the window. Having deep conversations with and partying with close friends. There were too many moments for the highlight reel to count. I know this week won’t be representative of what my gap year looks like, but I sure as hell hope it does. This one sets the bar.
+Indulgence. A week spent with family, food, and friends. Putting work aside for family. Throwing my diet out the window. Having deep conversations with and partying with close friends. There were too many moments for the highlight reel to count. I know this week won’t be representative of what my gap year looks like, but I sure as hell hope it does. This one sets the bar.
 
 <div class="video-box"><iframe width="560" height="315" src="https://www.youtube.com/embed/uBga-Z2mpGI?rel=0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe></div>
 
@@ -82,13 +83,13 @@ The timing of the visit to the land was perfect though, as it was harvest season
 
 After that packed morning, I was on a bus back into the city. But my day wasn’t over — far from it, actually. I passed out the entirety of the ride back, because I knew I would need the energy.
 
-You see, Friday was the hyped opening night for one of the most important movies of the year to the Asian American community: Shang Chi and the Legend of the Ten Rings. For those of you who don’t know, Shang Chi is the first Marvel movie to headline an Asian lead superhero. Not only is it historically landbreaking in terms of AA representation in Hollywood, but it’s also a really amazing movie with terrific Rotten Tomatoes ratings. And since I was in NYC, I could see it on the big screens.
+You see, Friday was the hyped opening night for one of the most important movies of the year to the Asian American community: Shang Chi and the Legend of the Ten Rings. For those of you who don’t know, Shang Chi is the first Marvel movie to headline an Asian lead superhero. Not only is it historically landbreaking in terms of AA representation in Hollywood, but it’s also a really amazing movie with [a terrific 92% Fresh Rotten Tomatoes rating](https://www.rottentomatoes.com/m/shang_chi_and_the_legend_of_the_ten_rings). And since I was in NYC, I could see it on the big screens.
 
 ![](../uploads/090321_jeff_shangchi_premiere.jpeg)
 
-Oh, and when I say the big screens, I mean the REALLY big screens. As in, the absolutely huge IMAX screen at AMC Lincoln Square. The one that towers and is the largest one in North America. Here’s a scale diagram \[link here] to give you a sense of its size.
+Oh, and when I say the big screens, I mean the REALLY big screens. As in, the absolutely huge IMAX screen at AMC Lincoln Square. The one that towers and is the largest one in North America. [Here’s a scale diagram](<Seeing it on the big screens!>) to give you a sense of what I mean.
 
-![](../uploads/090421_shangchi_movie_clip.png)
+![Best seats in the theater!](../uploads/090421_shangchi_movie_clip.png "Best seats in the theater!")
 
 It was a pretty great movie overall. Not mind-blowing like endgame, but still pretty darn good. 
 
@@ -96,11 +97,11 @@ All of these things, though, had been samplers for the main event of the week- m
 
 I’m not a big party person, if you haven’t guessed already. In fact, I don’t usually host bday parties because I was always afraid that I wouldn’t have enough friends that would be willing to come. I was never hugely popular and capable of drawing dozens of people to an event like that. The last time I held a proper bday party was 4 or 5 years ago.
 
-But this year, after a desolate year at home, I decided to say screw it, and take the plunge. So I booked an adventure park called Area53 to celebrate, and invited people to come.
+But this year, after a desolate year at home, I decided to say screw it, and take the plunge. So I booked an [adventure park called Area53](https://area53nyc.com/adventure/) to celebrate, and invited people to come.
 
-The weeks leading up to the party were tumultuous. I sent out about a dozen invites, and only expected 2-4 people to actually show up. I had extremely low expectations - who would even be willing to make the effort? But I was touched when I had not 2, not 3, not 4, but FIVE *people come out that night to celebrate. Two of them were even buddies back at Yale who took the 2h+ commute to make it to the park. And that feeling of belonging was probably the best birthday gift I could have ever gotten.* \*My friend Meag also would’ve come, but she mixed up the dates.\* 
+The weeks leading up to the party were tumultuous. I sent out about a dozen invites, and only expected 2-4 people to actually show up. I had extremely low expectations - who would even be willing to make the effort? But I was touched when I had not 2, not 3, not 4, but FIVE people come out that night to celebrate. Two of them were even buddies back at Yale who took the 2h+ commute to make it to the park. And that feeling of belonging was probably the best birthday gift I could have ever gotten. \*My friend Meaghan also would’ve come, but she mixed up the dates.\* 
 
-I spent the entire day preparing for it. Namely, I went to trader joes to carefully curate a list of 21 snacks. Those damn snacks had tempted me for the past few weeks each time I passed through the store, and if I were to cheat on my diet for a day, I would go all out.
+I spent the entire day preparing for it. Namely, I went to Trader Joes to carefully curate a list of 21 snacks. Those damn snacks had tempted me for the past few weeks each time I passed through the store, and if I were to cheat on my diet for a day, I would go all out.
 
 ![](../uploads/090421_tjs_snack_shopping.jpeg)
 
@@ -122,7 +123,7 @@ battle boarding,
 
 And more!
 
-But that wasn’t all. We also did the ProZD 21 snacks challenge and got it all on tape, and shoveled down a melted ice cream cake.
+But that wasn’t all. We also did a [ProZD-inspired "Let's Try 21 Trader Joes snacks"](https://youtube.com/playlist?list=PLhyHc3W8oSouW-0FQ13hs1kgUW1aA5ffj) challenge and got it all on tape, and shoveled down a melted ice cream cake from [Chinatown Ice Cream factory](https://www.chinatownicecreamfactory.com/ice-cream).
 
 ![From left to right: Audrey (DPops co-pres), Danielle (YA class), Yours Truly, Mai (HLAB SA), Ram (EY internship)](../uploads/090421_prozd_21_snacks.png "From left to right: Audrey (DPops co-pres), Danielle (YA class), Yours Truly, Mai (HLAB SA), Ram (EY internship)")
 
@@ -154,4 +155,4 @@ But then I got a text from Audrey.
 
 ![](../uploads/090521_audrey_text.png)
 
-I was depressed, but after Audrey said she felt the same way, I could feel myself more or less snap out of it. I spent a lesson teaching the kids, and felt my social battery recovering. I wasn’t alone. I had a group of close friends.
+I was depressed, but after Audrey said she felt the same way, I could feel myself more or less snap out of it. I spent a lesson teaching the kids, and felt my social battery recovering. I wasn’t alone. I had close friends and family.
