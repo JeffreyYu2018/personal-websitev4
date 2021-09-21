@@ -97,11 +97,11 @@ All of these things, though, had been samplers for the main event of the week- m
 
 I’m not a big party person, if you haven’t guessed already. In fact, I don’t usually host bday parties because I was always afraid that I wouldn’t have enough friends that would be willing to come. I was never hugely popular and capable of drawing dozens of people to an event like that. The last time I held a proper bday party was 4 or 5 years ago.
 
-But this year, after a desolate year at home, I decided to say screw it, and take the plunge. So I booked an adventure park called Area53 to celebrate, and invited people to come.
+But this year, after a desolate year at home, I decided to say screw it, and take the plunge. So I booked an [adventure park called Area53](https://area53nyc.com/adventure/) to celebrate, and invited people to come.
 
 The weeks leading up to the party were tumultuous. I sent out about a dozen invites, and only expected 2-4 people to actually show up. I had extremely low expectations - who would even be willing to make the effort? But I was touched when I had not 2, not 3, not 4, but FIVE people come out that night to celebrate. Two of them were even buddies back at Yale who took the 2h+ commute to make it to the park. And that feeling of belonging was probably the best birthday gift I could have ever gotten. \*My friend Meaghan also would’ve come, but she mixed up the dates.\* 
 
-I spent the entire day preparing for it. Namely, I went to trader joes to carefully curate a list of 21 snacks. Those damn snacks had tempted me for the past few weeks each time I passed through the store, and if I were to cheat on my diet for a day, I would go all out.
+I spent the entire day preparing for it. Namely, I went to Trader Joes to carefully curate a list of 21 snacks. Those damn snacks had tempted me for the past few weeks each time I passed through the store, and if I were to cheat on my diet for a day, I would go all out.
 
 ![](../uploads/090421_tjs_snack_shopping.jpeg)
 
@@ -123,7 +123,7 @@ battle boarding,
 
 And more!
 
-But that wasn’t all. We also did the ProZD 21 snacks challenge and got it all on tape, and shoveled down a melted ice cream cake.
+But that wasn’t all. We also did a [ProZD-inspired "Let's Try 21 Trader Joes snacks"](https://youtube.com/playlist?list=PLhyHc3W8oSouW-0FQ13hs1kgUW1aA5ffj) challenge and got it all on tape, and shoveled down a melted ice cream cake from [Chinatown Ice Cream factory](https://www.chinatownicecreamfactory.com/ice-cream).
 
 ![From left to right: Audrey (DPops co-pres), Danielle (YA class), Yours Truly, Mai (HLAB SA), Ram (EY internship)](../uploads/090421_prozd_21_snacks.png "From left to right: Audrey (DPops co-pres), Danielle (YA class), Yours Truly, Mai (HLAB SA), Ram (EY internship)")
 
