@@ -28,7 +28,7 @@ It started out innocuously enough, as I munched on some eccentric Cambodian food
 
 ![pork belly sandwich with corn on the cob and sweet potato fries](../uploads/072921_cambodian_food.jpeg "pork belly sandwich with corn on the cob and sweet potato fries")
 
-The Olympics in Tokyo were hot in the news, so my eyes pored over highlights on YouTube as my taste buds worked away at the feast in front of me. Seeing those athletes and fellow young people achieve such incredible feats was inspiring ... not just from the POV of an onlooker, but also from a young person making their mark on the world. Like Ego, it shook me to my core.
+The Olympics in Tokyo were hot in the news, so my eyes pored over [highlights on YouTube](https://www.youtube.com/watch?v=BN-mOu7RYBA&ab_channel=NBCSports) as my taste buds worked away at the feast in front of me. Seeing those athletes and fellow young people achieve such incredible feats was inspiring ... not just from the POV of an onlooker, but also from a young person making their mark on the world. Like Ego, it shook me to my core.
 
 Everything clicked. I wanted to be doing something that took up 110% of my energy. Not just my academic energy, but my mental, physical, emotional, and creative energy. That was the spark I had been missing, an all-encompassing drive and ambition to change the world.
 
@@ -44,7 +44,7 @@ To Connor, though, the answer was none of the above. To him, it would be totally
 
 # The upshot of freedom
 
-Those words stuck with me as I headed into the weekend. Work or leisure, classes or travel, one belief had remained unchanged: creating your own luck. If I didn't get my butt out of my house, any opportunity would remain within the confines of my aparmtent.
+Those words stuck with me as I headed into the weekend. Work or leisure, classes or travel, one belief had remained unchanged: creating your own luck. If I didn't get my butt out of my house, any opportunity would remain within the confines of my apartment.
 
 So on a Friday night, I hauled myself to a pool party at Ming's house. No, not pool as in swimming pool, but pool as in pool table. The backstory is too much to explain in this post, but let it be known that it was a multi-week endeavor worth celebration.  
 
@@ -74,7 +74,7 @@ But it was the people that were truly memorable. Every Redditor I met had a dist
 
 ![area53, a hip laser tag area](../uploads/073121_redditors_laser_tag.jpeg "area53, a hip laser tag area")
 
-!["dumbo" -- what a gem of a neighborhood. and the view!](../uploads/073121_redditors_dumbo.jpeg "\\\"dumbo\\\" -- what a gem of a neighborhood. and the view!")
+!["dumbo" -- what a gem of a neighborhood. and the view!](../uploads/073121_redditors_dumbo.jpeg "\\\\"dumbo\\\\" -- what a gem of a neighborhood. and the view!")
 
 ![the redditors](../uploads/073121_redditors_group_pic.jpeg "the redditors")
 
