@@ -10,7 +10,7 @@ tags:
 ---
 It was the last week of my internship at Ernst and Young, and while I wouldn’t say that I ended my tenure at the firm with a bang and lasting friendships, I would say that I’ve ended it with a renewed sense of hope and optimism for the future. For that, I have an Olympian and fellow consultant, to thank.
 
-In lieu of an end-of-internship trip to Disneyland, EY decided instead to host a series of virtual workshops and webinars for its thousands of interns. There were magicians, coffee tastings, and all sorts of wacky topics. But, the type-A Yale student I was, I decided to sign up for the motivational chat with Michelle Carter, Rio 2016 gold medalist in shot-put. In the one and a half hour session, she talked about her journey growing up as an African-American woman in the American educational system, and her journey in becoming the best athlete in her respective field.
+In lieu of an end-of-internship trip to Disneyland, EY decided instead to host a series of virtual workshops and webinars for its thousands of interns. There were magicians, coffee tastings, and all sorts of wacky topics. But, the type-A Yale student I was, I decided to sign up for the motivational chat with [Michelle Carter](https://www.instagram.com/shotdiva/), Rio 2016 gold medalist in shot-put. In the one and a half hour session, she talked about her journey growing up as an African-American woman in the American educational system, and her journey in becoming the best athlete in her respective field.
 
 ![](../uploads/080621_michelle_carter_slide_1.jpeg)
 
