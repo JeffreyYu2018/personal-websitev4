@@ -28,7 +28,7 @@ I could only take so much gorgeousness though before needing to escape to some a
 
 Heat was the theme this week. Things got even spicier when I headed to my hip hop dance class on Tuesday. This week, we learned a new clean set of moves. Feeling more comfortable, I actually started getting the hang of it. It helped that no one else had done this choreography before, but also, practice makes perfect, and Russell (the teacher) was great at teaching the moves at a slower pace. As always, it was so dang fun, and got me buzzed afterwards on natural endorphins.
 
-!["get that money money money" will be burned in my ears forever](../uploads/062921_hip_hop_dance.jpeg "\"get that money money money\" will be burned in my ears forever")
+!["get that money money money" will be burned in my ears forever](../uploads/062921_hip_hop_dance.jpeg "\\"get that money money money\\" will be burned in my ears forever")
 
 ![what a view on the way home](../uploads/062921_sunset.jpeg "what a view on the way home")
 
@@ -60,7 +60,7 @@ Not to mention, the office is just damn aesthetic. Photo dump incoming.
 
 ![a wellness room??](../uploads/070121_hoboken_office_10.jpeg "a wellness room??")
 
-I loved the office so much, in fact, that I headed there again on Friday. Mom needed a day to herself to go shopping in SoHo and walk around the High Line, so it worked out perfectly. Hoboken's also just a really nice area to work in.
+I loved the office so much, in fact, that I headed there again on Friday. Mom, who was visiting in town for the weekend, needed a day to herself to go shopping in SoHo and walk around the High Line, so it worked out perfectly. Hoboken's also just a really nice area to work in.
 
 ![who knew there were so many events right across the river in hoboken??](../uploads/070221_hoboken_events.jpeg "who knew there were so many events right across the river in hoboken??")
 
@@ -72,7 +72,7 @@ As for other stunning views, I transferred at the WTC subway station on the way 
 
 ![best detour I could have taken](../uploads/070221_oculus.jpeg "best detour I could have taken")
 
-That was pretty much the end of my self-exploration though, as I spent the rest of the week with other people. My mom was in town since Thursday, so after a busy work day on Friday, we headed for some touristy sites. Mom loves flowers, so she wanted to visit the New York Botanical Garden. It was an hour commute, but it was worth getting out of Manhattan on a chilly rainy day.
+That was pretty much the end of my self-exploration though, as I spent the rest of the week with other people. As I mentioned, my mom was in town since Thursday, so after a busy work day on Friday, we headed for some touristy sites. Mom loves flowers, so she wanted to visit the New York Botanical Garden. It was an hour commute, but it was worth getting out of Manhattan on a chilly rainy day.
 
 ![](../uploads/070321_jeff_botanical_garden.jpeg)
 
@@ -83,7 +83,7 @@ Personally, I'm not a big fan of gardens, so we mutually agreed to split up, wit
 ![Breakfast blogs in the Bronx](../uploads/070321_blogging_in_bronx.jpeg "Breakfast blogs in the Bronx")
 
 If breakfast was simple, though, dinner was anything but. Mom and I are huge foodies, so we went to a Michelin 2-star Scandanavian restaurant called Aquavit for dinner. We were both gonna get the 5-course tasting menus, but we decided to split two prix-fixe three-course menus for the variety and price. Needless to say, it was absolutely insane in quality, and I just closed my eyes and enjoyed the depth and dimension of flavors in each dish. You can find the menu [here.](<https://static1.squarespace.com/static/54288085e4b0461906627747/t/60de24934e678d3098895c3d/1625171091150/DR+07.01.21.pdf
-https://static1.squarespace.com/static/54288085e4b0461906627747/t/60de24934e678d3098895c3d/1625171091150/DR+07.01.21.pdf>) PC: Mom.
+https://static1.squarespace.com/static/54288085e4b0461906627747/t/60de24934e678d3098895c3d/1625171091150/DR+07.01.21.pdf>)
 
 ![](../uploads/070321_michelin_basil_tomato_app.jpeg)
 
@@ -137,7 +137,7 @@ There, I spent the rest of the evening and night with Ram, one of the interns fr
 
 I'm finally glad to have befriended some thrill seekers in this stage of my life, because I got to do something I had been itching to do for months ... ride a legit rollercoaster! The Cyclone was a wooden bull that kicked us around and gave **serious** airtime. I had forgotten how much I loved that gut-dropping thrill ... no wonder I'm going skydiving next week. ;)
 
-![went on "the cyclone" twice!](../uploads/070421_coney_island_cyclone.jpeg "went on \"the cyclone\" twice!")
+![went on "the cyclone" twice!](../uploads/070421_coney_island_cyclone.jpeg "went on \\"the cyclone\\" twice!")
 
 ![ignore that watermark ;) we're just edgy like that](../uploads/070421_coney_island_rollercoaster.jpeg "ignore that watermark ;) we're just edgy like that")
 
