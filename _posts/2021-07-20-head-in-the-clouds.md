@@ -32,7 +32,7 @@ They had ... and yes, you're seeing this right ...
 
 ![](../uploads/070721_alimama_menu.jpeg)
 
-Asiatic-flavored cream puffs and mochi donuts?? I could die in heaven right now. Diet that I am on, I couldn't resist trying out some of the unique flavors, and it was totally worth the mini cheat day.
+[Asiatic-flavored cream puffs and mochi donuts](https://www.alimamanyc.com/)?? I could die in heaven right now. Diet that I am on, I couldn't resist trying out some of the unique flavors, and it was totally worth the mini cheat day.
 
 ![milk and honey + boba cream puffs, along with a matcha mochi donut](../uploads/070721_alimama_my_food.jpeg "milk and honey + boba cream puffs, along with a matcha mochi donut")
 
@@ -54,7 +54,7 @@ And the very first place to start was my fear of heights, through skydiving. Alt
 
 ![](../uploads/070821_poughkeepsie_weather_rain.png)
 
-You see, I've always wanted to take skydiving off of my bucket list. I didn't ever think this would be the summer to do it, except I saw a reddit post one day in r/nycmeetups from a 18F girl who wanted to go skydiving with people. I didn't think much of it - in fact I laughed it off - but as I thought about it more, I started to change my mind. If my goal this summer was to be a summer of yes, to embrace spontaneity ... what was holding me back? I could think of a few reasons to say no - the sketchiness of going with strangers - but also a million reasons to say yes. 
+You see, I've always wanted to take skydiving off of my bucket list. I didn't ever think this would be the summer to do it, except I saw a reddit post one day in r/nycmeetups from a 18F girl who wanted to go [skydiving](https://skydivetheranch.com/) with people. I didn't think much of it - in fact I laughed it off - but as I thought about it more, I started to change my mind. If my goal this summer was to be a summer of yes, to embrace spontaneity ... what was holding me back? I could think of a few reasons to say no - the sketchiness of going with strangers - but also a million reasons to say yes. 
 
 I weighted the risks and potential rewards. What was I risking? One lost day, spending time with people I didn't really like. The potential rewards? An epic story after my summer after a year locked up at home: skydiving with strangers from Reddit.
 
@@ -92,7 +92,7 @@ The dive was INSANE ... I've never felt so much air whoosh against my body befor
 
 ![](../uploads/070921_skydiving_midfall.jpeg)
 
-To be honest, it was an uncomfortable feeling, and I think I'd have to try again a few times before truly enjoying the freefall experience. But once the parachute was released, I re-entered familiar territory. It was paragliding, just like in Taiwan more than a year ago... just a couple extra thousand feet in the air.
+To be honest, it was an uncomfortable feeling, and I think I'd have to try again a few times before truly enjoying the freefall experience. But once the parachute was released, I re-entered familiar territory. It was paragliding, [just like in Taiwan more than a year ago](https://www.jeffreyyu.me/2020/06/01/a-week-that-had-it-all/)... just a couple extra thousand feet in the air.
 
 ![](../uploads/070921_skydiving_sky_view.jpeg)
 
@@ -118,7 +118,7 @@ As I conked out on my bed that night after returning home, all I could think of 
 
 # winding dow... or so you thought
 
-But if you thought I would end one of the most thrilling, stimulating days of my life with something calm and restorative, you’re totally wrong. No, for the next two days, I ended up walking around the city with a dear friend of mine from the past: Yunnie, my co-mentor from teaching abroad in Tokyo two summers back. She was in town from Boston, and she crashed at my place for the weekend as I brought her to all of the coolest spots in the city. Somehow, I had enough energy to muster to hang out (thanks Jake for my healthy nutrition + exercise plan!), and we vibed like we had never split up from summer school.
+But if you thought I would end one of the most thrilling, stimulating days of my life with something calm and restorative, you’re totally wrong. No, for the next two days, I ended up walking around the city with a dear friend of mine from the past: Yunnie, my co-mentor from [teaching abroad in Tokyo](https://www.youtube.com/watch?v=gk-naVek41Y&ab_channel=HLAB) two summers back. She was in town from Boston, and she crashed at my place for the weekend as I brought her to all of the coolest spots in the city. Somehow, I had enough energy to muster to hang out (thanks Jake for my healthy nutrition + exercise plan!), and we vibed like we had never split up from summer school.
 
 What did we do? I brought her to all of my favorite spots in the city, along with some new ones.
 
@@ -126,7 +126,7 @@ What did we do? I brought her to all of my favorite spots in the city, along wit
 
 ![yunnie x jeff --> HLABbers forever!](../uploads/071021_yunnie_jeff_high_line.jpeg "yunnie x jeff --> HLABbers forever!")
 
-One funny anecdote is that on the walk, I just happened to have things in my bag that Yunnie needed. In fact, this became a theme of the trip. For example, Yunnie’s feet were bruised from walking on the high line so much, but I had a pair of sacks placed in there from days before. This was TOTALLY by coincidence, but I felt happy from unintentionally being a good host.
+One funny anecdote is that on the walk, I just happened to have things in my bag that Yunnie needed. In fact, this became a theme of the trip. For example, Yunnie’s feet were bruised from walking on the high line so much, but I had a pair of socks placed in there from days before. This was TOTALLY by coincidence, but I felt happy from unintentionally being a good host.
 
 ![stumblin upon the honeycomb-like vessel](../uploads/071021_vessel.jpeg "stumblin upon the honeycomb-like vessel")
 
@@ -134,7 +134,7 @@ One funny anecdote is that on the walk, I just happened to have things in my bag
 
 ![b8ta, a unique brick and mortar store with prototypes that haven't hit the full market yet](../uploads/071021_b8ta.jpeg "b8ta, a unique brick and mortar store with prototypes that haven't hit the full market yet")
 
-We walked home at that point, after waiting for a bus that was over FORTY FIVE MINUTES LATE. (\*rolls eyes at nyc metro transportation system\*) We had walked tens of thousands of steps, and talked for over four hours straight, and both needed some rest time. For Yunnie, that meant passing out, and for me, that meant eating a meal in solitude and going to work out. 
+We walked home at that point, after waiting for a bus that was over FORTY FIVE MINUTES LATE. (\*rolls eyes at nyc metro transportation system\*) We had walked tens of thousands of steps, and talked for over four hours straight, and we both needed some rest time. For Yunnie, that meant passing out, and for me, that meant eating a meal in solitude and going to work out. 
 
 Post-nap and post-workout, though, we had restored our health, and were ready to tackle our next escapade: Queens Night Market. 
 
@@ -154,13 +154,13 @@ What a great way to bring things full circle. Two travelers trying cuisines from
 
 ![](../uploads/071021_jeff_and_yunnie_queens_night_market.jpeg)
 
-My favorite memories? Us vibing, and sharing our favorite characteristics in each other. Yunnie said I was a positive person with a ton of drive, and that made me smile because it was validation for what had been a long, uncertain two year journey. If only my high school self could see me now. And funniest memory? Yunnie being cold, and me conveniently having a jacket in my backpack in preparation for rain. Idk why, but those little coincidences made me laugh. I just like being a better host. Apparently my personality, Protagonists, love to bring joy to other people. And that was certainly true for this weekend.
+My favorite memories? Us vibing, and sharing our favorite characteristics in each other. Yunnie said I was a positive person with a ton of drive, and that made me smile because it was validation for what had been a long, uncertain two year journey. If only my high school self could see me now. And funniest memory? Yunnie being cold, and me conveniently having a jacket in my backpack in preparation for rain. Idk why, but those little coincidences made me laugh. I just like being a better host. Apparently my personality, [Protagonists](https://www.16personalities.com/enfj-personality), love to bring joy to other people. And that was certainly true for this weekend.
 
 Saturday was the day that I hung out most with Yunnie, but even though we enjoyed hanging out together, I had a lot of other stuff on Sunday, and Yunnie had other friends she wanted to hang with. So that day, we parted ways temporarily. I was exhausted and sleep-deprived and needed some more low-energy time anyway.
 
 ![Watched the Wimbledon final with Ming, my hitting partner. soo happy to geek out with a fellow tennis enthusiast](../uploads/071121_wimby_final.jpeg "Watched the Wimbledon final with Ming, my hitting partner. soo happy to geek out with a fellow tennis enthusiast")
 
-Beyond indulging in some high-quality grass court tennis, I used the free time to make a run to TJs and also head to my first ever comedy improv class. There was an incredible diversity of people and skillsets, and it was SO fun. We played bonding games, maintained an upbeat vibe, and just had a blast. For once, I was actually itching to get on the stage - that’s how much I enjoyed it, which blew me away. Needless to say, it picked up my mood, and by the evening I was ready for another round.
+Beyond indulging in some high-quality grass court tennis, I used the free time to make a run to TJs and also head to my [first ever comedy improv class](https://magnettheater.com/class/improv-level-one/). There was an incredible diversity of people and skillsets, and it was SO fun. We played bonding games, maintained an upbeat vibe, and just had a blast. For once, I was actually itching to get on the stage - that’s how much I enjoyed it, which blew me away. Needless to say, it picked up my mood, and by the evening I was ready for another round.
 
 But Yunnie was tired from a day of wandering around the city with other friends, and we ended our weekend with a chill meal. In particular, we went to a nearby Spanish tapas bar and got a fancy 6 tapas prix-fixe meal.
 
