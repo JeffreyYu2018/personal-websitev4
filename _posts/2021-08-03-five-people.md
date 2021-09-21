@@ -18,7 +18,7 @@ Maybe it was in an unconscious aversion to making a decision that I was so drawn
 
 ![the beautiful east village](../uploads/071921_east_village_beautiful.jpeg "the beautiful east village")
 
-I’m not sure what it is about new environments, but an adventure to a new shop always brings out the best thoughtful side of me. Maybe it’s the lack of familiarity that forces me to embrace new ideas, rather than cling to routine. In any case, I’ve officially become a “cafe boi,” not for the food or drink, but rather, for the ambience. This week, the lucky loser was a place highlighted on IG: Prince Tea House in East Village.
+I’m not sure what it is about new environments, but an adventure to a new shop always brings out the best thoughtful side of me. Maybe it’s the lack of familiarity that forces me to embrace new ideas, rather than cling to routine. In any case, I’ve officially become a “cafe boi,” not for the food or drink, but rather, for the ambience. This week, the lucky loser was a place [highlighted on IG](https://www.instagram.com/princeteahouse/?hl=en): Prince Tea House in East Village.
 
 ![](../uploads/071921_prince_tea_house_front.jpeg)
 
@@ -64,7 +64,7 @@ By now, that adventurous tendency has manifested in the form of a 100+ item list
 
 ![](../uploads/072121_pier_26.jpeg)
 
-Excitement. That’s all that was on my mind as I waited for the minutes of work to tick down, and in my body as I sprint-biked down the coast of Manhattan to pier 26, and in my chest as I saw the kayaks floating on the pristine water on a stunning day. 
+Excitement. That’s all that was on my mind as I waited for the minutes of work to tick down, and in my body as I sprint-biked down the coast of Manhattan to pier 26, and in my chest as I [saw the kayaks](https://www.downtownboathouse.org/free-kayaking) floating on the pristine water on a stunning day. 
 
 ![](../uploads/072121_free_kayaking.jpeg)
 
@@ -82,7 +82,7 @@ The social momentum kept building up. After slugging through technical work and 
 
 ![](../uploads/072221_wagyu_beef_bowl.jpeg)
 
-It was one of those rare moments where I just wanted to shut up and savor the food. Yes, it was that good. So, despite the high-energy person that I am, I just listened to Meg talk, and took it slow.
+It was one of those rare moments where I just wanted to shut up and savor the food. Yes, it was that good. So, despite the high-energy person that I am, I just listened to Meag talk, and took it slow.
 
 ![](../uploads/072221_dinner_with_meg_jspec.jpeg)
 
@@ -90,7 +90,7 @@ Afterwards, I pestered Meaghan to come with me to the Spot, a nearby famous dess
 
 ![](../uploads/072221_the_spot_dessert_menu.png)
 
-As a guy who grew up watching Kitchen Nightmares, Masterchef, and all memes Ramsay, I was blown away by the idea of an Asian-American, high end dessert place. It was like my fever dream restaurant had come to life, combining all of my favorite things together to be enjoyed on a cool summer evening. 
+As a guy who grew up watching Kitchen Nightmares, Masterchef, and [all memes Ramsay](https://static0.srcdn.com/wordpress/wp-content/uploads/2020/06/Gordon-Ramsay-Its-Raw.jpg), I was blown away by the idea of an Asian-American, high-end dessert place. It was like my fever dream restaurant had come to life, combining all of my favorite things together to be enjoyed on a cool summer evening. 
 
 ![a super festive vibe, with NO line!](../uploads/072221_the_spot.jpeg "a super festive vibe, with NO line!")
 
@@ -118,7 +118,7 @@ Saturday was interesting, as it started initially as a calm, relaxing day to sle
 
 ![stumbled into this farmers market in Union Square on a bright, sunny Saturday afternoon. Definitely gonna come back and scope it out more fully in the future!](../uploads/072421_union_sq_farmers_market.jpeg "stumbled into this farmers market in Union Square on a bright, sunny Saturday afternoon. Definitely gonna come back and scope it out more fully in the future!")
 
-I was especially inclined to go outside in the end rather than relax inside all day because CitiBike was offering free unlimited rides to New Yorkers that Saturday. 
+I was especially inclined to go outside in the end rather than relax inside all day because [CitiBike was offering free unlimited rides to New Yorkers that Saturday](https://www.timeout.com/newyork/news/citi-bike-is-offering-unlimited-free-rides-to-new-yorkers-this-weekend-072221). 
 
 ![I LOVE TimeOut … would have never found out about this gem otherwise](../uploads/072421_citibike_free.png "I LOVE TimeOut … would have never found out about this gem otherwise")
 
@@ -142,7 +142,7 @@ After a long back-and-forth on the logistics, we managed to meet up around 9 pm,
 
 ![this place, NR, was the real deal — it had Toto hand dryers, and the waiters even bowed as we headed out!](../uploads/072421_jeff_pong_nr.jpeg "this place, NR, was the real deal — it had Toto hand dryers, and the waiters even bowed as we headed out!")
 
-Pong and I then followed up the meal with a Van Leeuwens ice cream escapade to a nearby park. It was awesome to catch up with Pong, not only because he was doing some really inspiring stuff at McKinsey, but because Insane work hours and tiredness aside, he was excelling and happy with his job. 
+Pong and I then followed up the meal with a Van Leeuwens ice cream escapade to a nearby park. It was awesome to catch up with Pong, not only because he was doing some really inspiring stuff at McKinsey, but because insane work hours and tiredness aside, he was excelling and happy with his job. 
 
 The interaction made me realize a long-standing phenomenon I had wondered about: what made the people from Yale so special. The answer? Ambition. There’s a fire in people like Pong that I gravitate towards and am fed and inspired by. I like being around smart, driven people who challenge and excite me to become a better version of myself. Not just vocationally like in this example, but also in terms of extracurriculars and passions. Like, we even talked about vlogging and cameras, since Pong is an AV god, and I’d picked up an interest in cinematography over quarantine. 
 
