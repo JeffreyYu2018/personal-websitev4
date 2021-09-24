@@ -11,7 +11,7 @@ tags:
 ---
 After an [indulgent first week filled with fun](https://www.jeffreyyu.me/2021/09/05/indulgence/), this week I sat down and began my gap year in earnest. Specifically, my structured gap year habits started to hit in full force. From setting up all my video equipment to ramping up my tutoring job at ZhenEd, I’ve begun to incorporate some new habits into my day. In adding all of these activities, I’ve learned that what I value most in my schedule is flexibility. 
 
-\[YOUTUBE VIDEO LINK - COMING SOON]
+<div class="video-box"><iframe width="560" height="315" src="https://www.youtube.com/embed/12YddhUznEs?rel=0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe></div>
 
 From hopping events hosted by different WeWork locations ….
 
