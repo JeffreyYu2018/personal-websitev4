@@ -65,7 +65,7 @@ But it’s these very moments of absolute sucking and feeling awful and sadness 
 
 ![](../uploads/091821_donut.png)
 
-Because it’s in these moments of fucking up and living off what is considered normal that I’ve truly felt like I’ve grown and lived true to myself. 
+Because it’s in these moments of screwing up and living off what is considered normal that I’ve truly felt like I’ve grown and lived true to myself. 
 
 Yes, I know that my new path isn’t that nontraditional and is pretty cushy. But as someone who thought that his path in life was working at a corporate job for 40 years in SWE for the rest of his life, this is a MAJOR break in my life philosophy up to this point. 
 
