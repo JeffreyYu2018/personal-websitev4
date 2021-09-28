@@ -2,10 +2,12 @@
 layout: post
 title: going off the beaten path
 date: 2021-09-19T16:00:37.657Z
+header_feature_image: ../uploads/091721_feast_of_san_gennaro_street_pic.png
 title_color: "#ffffff"
 comments: false
 tags:
-  - ""
+  - NycFa21
+  - GapYr21-22
 ---
 This week, as I caught up on my blog posts, the central dilemma I grappled with was how to spend the winter, spring and summer of my gap year? Specifically, I was deciding between:
 
@@ -50,16 +52,19 @@ It’s all about trial and error. I’ve learned there’s things I really do en
 
 It’s interesting because what I enjoy, many of my friends don’t enjoy. After going on a nighttime yacht cruise party until 5 am, although my company was all nice people - a 40y.o. and 30y.o. bouncer pair I met a few weeks earlier - I felt out of place and realized the party clubbing scene was not for me, even though it thrived in New York.
 
-\[party yacht]
-\[dumbo at night]
-\[Statue of Liberty]
-\[trashy photo of Jeff at Statue of Liberty - caption: trashy photo, I know, but hey, it was 2:30 am]
+![](../uploads/091721_party_yacht.jpeg)
+
+![](../uploads/091721_dumbo_night.jpeg)
+
+![](../uploads/091721_statue_of_liberty.jpeg)
+
+![trashy photo, I know, but hey, it was 2:30 am](../uploads/091721_trashy_photo_jeff.jpeg "trashy photo, I know, but hey, it was 2:30 am")
 
 Beyond joys, I learned things and weaknesses in myself that I sucked at, now glaringly obvious now that the beaten path had cleared out the visage of working away just at a job. I wasn’t good at flirting with cute girls - not a train wreck, but just not polarizing or great at it - at parties.
 
 But it’s these very moments of absolute sucking and feeling awful and sadness that have inspired me to take up habits to fight it. I’m restarting my cold approach habit and sticking with it, putting it here for accountability. The best way I’ve heard it: I’m gonna give myself permission to fail. Permissions to make mistakes. Permission to try things out that aren’t conventional or traditional. Permission to be awkward or creepy. Permission to take a break - just think of the donut after my record breaking diet milestone of 159.0 lbs! 
 
-\[donut pub]
+![](../uploads/091821_donut.png)
 
 Because it’s in these moments of fucking up and living off what is considered normal that I’ve truly felt like I’ve grown and lived true to myself. 
 
