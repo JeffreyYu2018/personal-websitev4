@@ -9,10 +9,9 @@ tags:
   - NycFa21
   - GapYr21-22
 ---
-This week, as I caught up on my blog posts, the central dilemma I grappled with was how to spend the winter, spring and summer of my gap year? Specifically, I was deciding between:
+This week, as I caught up on my blog posts, the central dilemma I grappled with was how to spend the winter, spring and summer of my gap year? Specifically, I was deciding between: (a) recruiting on the traditional path for safe industries like consulting or tech, or (b) something crazier like workaway hopping and visit 10 countries in 8 months.
 
-(a) recruiting on the traditional path for safe industries like consulting or tech, or 
-(b) something crazier like workaway hopping and visit 10 countries in 8 months.
+
 
 Right now I’m moving away from (a) and towards (b). The reason why is encapsulated in a TED Talk I saw by Adam Poswolsky.
 
@@ -70,6 +69,6 @@ Because it’s in these moments of fucking up and living off what is considered 
 
 Yes, I know that my new path isn’t that nontraditional and is pretty cushy. But as someone who thought that his path in life was working at a corporate job for 40 years in SWE for the rest of his life, this is a MAJOR break in my life philosophy up to this point. 
 
-Off the beaten path, I’ve started to hit some other milestones as well. I recorded my first ever hip hop dance video \[link to google drive video here] with the boys - a promotion I never thought I would get. 
+Off the beaten path, I’ve started to hit some other milestones as well. I recorded my [first ever hip hop dance video with the boys](https://drive.google.com/file/d/1WQ7wjx4z3h8yuK-ua42dnH79gdBWs-Xb/view?usp=sharing) - a promotion I never thought I would get. 
 
 Hip hop and working holiday visas and workaways were shots of serotonin this week. The night out until 5 am and fail-flirting over the weekend were withdrawals of serotonin. I’m gonna just keep hitting and missing to forge and find my path forward.
