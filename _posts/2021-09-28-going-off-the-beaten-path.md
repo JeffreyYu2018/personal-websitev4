@@ -2,7 +2,7 @@
 layout: post
 title: going off the beaten path
 date: 2021-09-19T16:00:37.657Z
-header_feature_image: ../uploads/091721_feast_of_san_gennaro_street_pic.png
+header_feature_image: ../uploads/091721_feast_of_san_gennaro_street_cover_photo.png
 title_color: "#ffffff"
 comments: false
 tags:
