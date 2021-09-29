@@ -9,7 +9,7 @@ tags:
   - NycFa21
   - GapYr21-22
 ---
-This week, as I caught up on my blog posts, the central dilemma I grappled with was how to spend the winter, spring and summer of my gap year? Specifically, I was deciding between: (a) recruiting on the traditional path for safe industries like consulting or tech, or (b) something crazier like workaway hopping and visit 10 countries in 8 months.
+This week, as I caught up on my blog posts, the central dilemma I grappled with was how to spend the winter, spring and summer of my gap year. Specifically, I was deciding between: (a) recruiting on the traditional path for safe industries like consulting or tech, or (b) something crazier like workaway hopping and visit 10 countries in 8 months.
 
 <div class="video-box"><iframe width="560" height="315" src="https://www.youtube.com/embed/6qtay2qMGVI?rel=0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe></div>
 
